@@ -1,12 +1,10 @@
 ---
 longform:
   format: scenes
-  title: writing from the void
+  title: project amor
   workflow: Default Workflow
   sceneFolder: /
-  scenes:
-    - welcome to the void
-    - Something Else
+  scenes: []
   sceneTemplate: templates/note.md
   ignoredFiles: []
 ---
