@@ -1,4 +1,4 @@
 ---
-title: Shae's Journal
+title: writing from the void
 ---
 
