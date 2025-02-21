@@ -1,5 +1,5 @@
 ---
-title: writing from the void
+title: hi
 ---
  
 *offline, mostly.* 
