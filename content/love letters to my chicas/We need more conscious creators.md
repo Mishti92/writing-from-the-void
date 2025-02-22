@@ -82,10 +82,5 @@ trust your inner voice. trust your curiosity, trust your timing. trust your pace
 I fucking love you.
 
 your chica
-
 shae
 
-_p.s. nothing will ever be the same again, so everything has to go._  
-[_check out the garage sale here_](https://randommovements.com/garage_sale/)
-
-[← previous journal entry](https://randommovements.com/open-2016/)
