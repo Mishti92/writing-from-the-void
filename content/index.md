@@ -6,6 +6,8 @@ title: hi
 
 deleted all social media accounts and writing from the void lately. disconnected from most of the world, in a tiny island, south of Brazil. 1 month. 2 months. 3 months. [[no sé]]. 
 
+this is the system I have built to let my creativity and curiosity take the lead and let the words pour out of me, removing all sorts of distractions with intentional chaos in entropy. [[unstructured creativity]]. 
+
 changing my brain chemistry to create for my soul and connect the dots of all I have been and all I want to be.
 
 I will be using [this space](https://www.youtube.com/@ps_yourchica) to share my midnight cravings (intuitive, free flow movement, aka chicken biryani for the soul) as it is, unedited and may play around with some video essays.
