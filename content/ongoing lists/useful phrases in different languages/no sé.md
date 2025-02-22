@@ -7,6 +7,6 @@
 
 *turkish* bilmiyorum
 
-*urdu* mujhe nahi pata
+*urdu/hindi* mujhe nahi pata
 
 *kashmiri* mae chi ni' pa'ey
