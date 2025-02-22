@@ -1,5 +1,5 @@
 
-**i don't know in multiple languages**
+*english* i don't know
 
 *portugeuse* não sei
 
@@ -9,4 +9,4 @@
 
 *urdu* mujhe nahi pata
 
-*kashmiri* me chi ni' pa'ey
+*kashmiri* mae chi ni' pa'ey
