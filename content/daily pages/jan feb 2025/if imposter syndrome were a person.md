@@ -8,7 +8,7 @@ went with nothing but 700 dollars to my name to Canada, worked 3 jobs, paid off 
 
 at my last tech corporate job, was the only woman in a senior role (and the only POC) in a room full of white men – maybe they needed a diversity hire, not because I earned my spot
 
-reached 100k followers on Instagram ^[i opened my instagram account in 2016]– must have been a fluke, they will soon know that I actually know nothing
+reached 100k followers on Instagram [^1]– must have been a fluke, they will soon know that I actually know nothing
 
 
 built a business while working full time, spending my evenings and weekends on it – it’s not a real business so it doesn’t count
@@ -58,3 +58,4 @@ s p a c e
 
 
 
+[^1]: [[i opened my instagram account in 2016]]
