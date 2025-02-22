@@ -18,7 +18,7 @@ _If you are feeling that unease, that feeling of being lost. That this is not me
 Lean into that feeling. Sit with it.  
 Sooner or later, trust me – it’s going to make sense.
 
-I should add – dont quit your job, just yet atleast.  You are probably not equipped to deal with the financial anxiety that comes with it, JUST YET.
+I should add – don't quit your job, just yet at least.  You are probably not equipped to deal with the financial anxiety that comes with it, JUST YET.
 
 I also want to offer a different perspective to the general opinion I am hearing for or against tech lately.  Something I have believed in for as long as I can remember, that was ruined for a while when I was working in the industry.
 
@@ -31,7 +31,7 @@ We were just chicas having fun with our creativity. And excited at the possibili
 
 _adhd sidenote: it was an all girls school in Srinagar – and after spending most of my school years in co-ed, it was a very interesting experience to study 2 years in all girls school._
 
-My next website project would be in 2nd year of my university-  it was required to complete the credits. So I spent the days during my summer holidays, mostly locked up in my room in Kashmir. Dad would bring me sliced fruits to nibble on. I learned php from YouTube and created a site for students to share class notes. It was a whole ass project, let me tell you. I even got my friends to play with it and test it out and we had a chat function and ability to send messages and all, lol.
+My [next website project](https://github.com/Mishti92/studentPanel) would be in 2nd year of my university-  it was required to complete the credits. So I spent the days during my summer holidays, mostly locked up in my room in Kashmir. Dad would bring me sliced fruits to nibble on. I learned php from YouTube and created a site for students to share class notes. It was a whole ass project, let me tell you. I even got my friends to play with it and test it out and we had a chat function and ability to send messages and all, lol.
 
 Semester ended, I moved on.
 
@@ -45,19 +45,19 @@ Now there’s a nuance here and I am not saying every company is a capitalistic 
 
 What I am trying to say is that
 
-IT IS NORMAL TO FEEL WHAT YOU ARE FEELING. Thats what the unease is telling you.
+IT IS NORMAL TO FEEL WHAT YOU ARE FEELING. 
+*thats what the unease is telling you.*
 
-You entered this world with a desire
-
-_or maybe it’s time for you to question if it’s actually your desire or you following the desires of people around you_
+You entered this world with a desire _or maybe it’s time for you to question if it’s actually your desire or you following the desires of people around you_
 
 And somewhere along the way, you are lost, you feel like you are selling your soul to the devil, lol.
 
 But my loves, tech is not the devil and no, you don’t need to run away to a farm and disappear off the face of earth to live a content life.
+( wrote this just before I decided to take a pause and [[disconnect from most of the world]])
 
 _although not a bad idea, but land is expensive af these days and we do live in a world where resources are shared with this thing called money. And you gotta have money to spend money, right?_
 
-Now more than anything, we need each other. To support each other, to lift each other up. We need these micro-communities building a tiny world in itself, a community of humans, by humans. We need a way to help each other, to share our stories, to share our gifts.
+Now more than anything, we need each other. To support each other, to lift each other up. We need these micro-communities building a tiny world in itself, a community [[for humans, by humans]]. We need a way to help each other, to share our stories, to share our gifts.
 
 _YES – we all have gifts._
 
