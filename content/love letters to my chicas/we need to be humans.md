@@ -1,1 +1,0 @@
-first and build businesses that help other humans. 

@@ -2,7 +2,7 @@ Artists. Website designers, developers. Copywriters. Movement facilitators. Phot
 Whatever your skill is. We need you.
 
 Along with the crazy, the wild and the messy side that comes along with it.  
-[[we need to be humans]] first and build businesses that help other humans. Away from the capitalistic, colonized version, away from the metrics of success that we have externally associated ourselves with, away from standups, daily check-ins, company town hall calls that feel almost robotic at this point.
+we need humans to be humans first and then build businesses that help other humans. [[for humans, by humans]]. Away from the capitalistic, colonized version, away from the metrics of success that we have externally associated ourselves with, away from standups, daily check-ins, company town hall calls that feel almost robotic at this point.
 
 I have had enough of that and I see a way ahead on how we can get there. It has always been infront of us, just covered up with the bells and whistles of fancy corporate, biz-talk. By doing exactly what we are on this planet for – to be a human.
 
