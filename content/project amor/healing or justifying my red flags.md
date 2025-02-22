@@ -30,7 +30,7 @@ _the task is not to look for love but to dismantle everything in your heart that
 So back to the question:  
 Am I healing or have I just created a narrative around my old coping patterns? Is it healing or is it me justifying my anxious attachment.
 
-Ahaaan!! But is it anxious attachment? 
+But is it anxious attachment? 
 
 So while I did get hurt and yes, that trigger led to a tiny burn on the wounds, that soon turned into a stream of tears. But that had nothing to do with this chico.
 
