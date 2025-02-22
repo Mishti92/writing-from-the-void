@@ -1,6 +1,6 @@
 *21.02.25*
 
-question i have: did the pain push you to heal your wounds or maybe you went all in for your work. close the matters of heart and only keep the mind at work. 
+question i have: did the pain push you to heal your wounds or maybe you went all in for your work. put a lock on all the matters of your heart and only allow mind at work. 
 
 
 we all have a constant desire to merge all of who we are in one. become us. find ourselves. 
