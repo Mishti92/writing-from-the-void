@@ -19,7 +19,7 @@ const config: QuartzConfig = {
     baseUrl: "mishti92.github.io/writing-from-the-void",
     ignorePatterns: ["private", "templates", ".obsidian"],
     defaultDateType: "created",
-    generateSocialImages: false,
+    generateSocialImages: true,
     theme: {
       fontOrigin: "googleFonts",
       cdnCaching: true,
