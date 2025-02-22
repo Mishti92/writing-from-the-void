@@ -1,4 +1,4 @@
-*mostly countries and cultures I have encountered*
+*from the countries and cultures I have encountered*
 
 [[te amo]]
 
