@@ -3,7 +3,7 @@
 
 *portugeuse* eu te amo
 
-*spanish* te amo ( te quiero for passion)
+*spanish* te amo ( te quiero for passion )
 
 *turkish* seni seviyorum ( seni çok seviyorum to convey a lot of love )
 

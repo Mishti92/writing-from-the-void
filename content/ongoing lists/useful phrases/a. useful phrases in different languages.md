@@ -6,5 +6,9 @@
 
 [[gracias]]
 
-dónde está el baño
+[[con gusto]]
+
+[[dónde está el baño]]
+
+[[cómo estás]]
 
