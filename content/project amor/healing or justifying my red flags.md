@@ -22,6 +22,7 @@ But wait a second! Was I joking though? Was it a sarcasm? I mean my heart did br
 Maybe I romanticize everything way too soon. Maybe I believe way too much in love and surrender. And in letting go of yourself, a bit, just a bit. Not too much that you will drown but hey, I am not going to lie but it will hurt. You can’t expect to find love without putting away the shields. You can’t avoid being hurt. When you consciously choose to get to know someone, you have to believe in the possibility, you have to believe in magic. You have to surrender and let universe take charge. You have to be a bit delulu, ok? That is just a part of living fully. You have to overcome fear and be slightly crazy to believe in love.  
 To believe love is the answer to all the madness.  
 And to believe that _‘to love is to live’._
+To [[choose love]] over fear.
 
 As my friend Adina reminded me today:  
 _the task is not to look for love but to dismantle everything in your heart that you have built up against it! I love you chica!_
