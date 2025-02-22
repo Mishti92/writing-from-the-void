@@ -7,7 +7,7 @@ we all have a constant desire to merge all of who we are in one. become us. find
 while some may find peace eventually in keeping it separate ( in silo ), most of us crave self-actualization. this is the becoming for all of us. 
 
 
-reclaim linkedin, reclaim corporate ( at its own time ). your past desires and curiosities about technology was also a part of you. don't discard that curiosity as less worth it. all parts of you deserve to be equally listened. and you loved building things, building products, leading teams, organizing bootcamps, startup weekends (read: [[We need more conscious creators]]). 
+reclaim linkedin, reclaim corporate ( at its own time ). your past desires and curiosities about technology was also a part of you. don't discard that curiosity as less worth it. all parts of you deserve to be equally listened. and you loved building things, building products, leading teams, organizing bootcamps, startup weekends (read: [[we need more conscious creators]]). 
 everyone needs to know this thing about running businesses, for humans, by humans. 
 *question to self: why should they listen to me? how do i know this is true for everyone, not just me* 
 
