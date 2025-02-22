@@ -1,4 +1,4 @@
-watched an interview I found on YouTube, glimpsed in a world, a world so familiar to you, yet unknown to me until now.
+I might have looked you up yesterday. watched an interview I found on YouTube, glimpsed in a world, a world so familiar to you, yet unknown to me until now.
 _It’s strange, isn’t it? How entire worlds exist outside our awareness until someone points them out on the map._
 
 And yet, even without knowing this world, I never felt out of place as you opened the doors for me.
