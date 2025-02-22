@@ -1,3 +1,5 @@
+*9.1.25*
+
 and this is an invitation to opt out.
 
 I am fully sober as I am writing this. I made sure of that 🙂 I am drinking my ice latte, enjoying medialuna ( think buttery croissant) in this cafe in Palermo Soho, Buenos Aires.

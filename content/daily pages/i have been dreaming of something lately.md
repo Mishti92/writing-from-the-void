@@ -1,3 +1,5 @@
+*24.01.25*
+
 The way it has come together in the last few weeks has been magical. Although it feels like years and years in making.
 
 The first time I drew up the sketch on my notepad, I had goosebumps. And the last few weeks, I have been doing some of my own magic to bring this sketch to life, with my usual ice latte and media luna order from this cutie cafe in Buenos Aires.

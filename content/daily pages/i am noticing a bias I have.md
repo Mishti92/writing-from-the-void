@@ -1,3 +1,5 @@
+*24.12.24*
+
 and I want to try and articulate it with as much honesty and care as possible.
 
 If you are a white person teaching or facilitating any indigenous practices—especially those rooted in healing—I sincerely hope you have done the work beyond just learning how to monetize that practice.

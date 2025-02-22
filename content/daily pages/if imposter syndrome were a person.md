@@ -1,3 +1,5 @@
+*26.12.24*
+
 it would be me—in flesh and blood. and oh, how well I mask it.
 
 got in the best school for comp sci – ah, I just got lucky
