@@ -81,6 +81,5 @@ trust your inner voice. trust your curiosity, trust your timing. trust your pace
 
 I fucking love you.
 
-your chica
-shae
+your chica 💋
 

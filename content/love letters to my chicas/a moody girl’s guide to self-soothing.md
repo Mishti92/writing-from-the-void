@@ -44,5 +44,4 @@ _( yes you should probably start making one right away)_ and let your body wigg
 
 No matter what your thoughts are telling you right now, remind yourself that you are loved. You are love and I fucking love you.
 
-your chica,  
-shae 💋
+your chica 💋

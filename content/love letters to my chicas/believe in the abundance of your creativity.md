@@ -32,5 +32,5 @@ Know that everything you seek is already within you. And every idea, every visio
 
 And the more you trust in that vastness, the more effortlessly the _good_ ideas will come.
 
-I love you,_  
-your chica 💋_
+I love you,
+your chica 💋
