@@ -25,7 +25,7 @@ And to believe that _‘to love is to live’._
 To [[choose love]] over fear.
 
 As my friend Adina reminded me today:  
-_the task is not to look for love but to dismantle everything in your heart that you have built up against it! I love you chica!_
+_the task is not to look for love but to dismantle everything in your heart that you have built up against it! [[te amo]] chica!_
 
 So back to the question:  
 Am I healing or have I just created a narrative around my old coping patterns? Is it healing or is it me justifying my anxious attachment.
