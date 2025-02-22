@@ -4,7 +4,7 @@ title: hi
  
 *offline, mostly.* 
 
-deleted all social media accounts and writing from the void lately.
+deleted all social media accounts and writing from the void lately. disconnected from most of the world, in a tiny island, south of Brazil. 1 month. 2 months. 3 months. no se. 
 
 changing my brain chemistry to create for my soul and connect the dots of all I have been and all I want to be.
 
