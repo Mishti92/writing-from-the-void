@@ -18,7 +18,7 @@ and [[so the story begins]]
 
 >daily pages is where i put my random thoughts that come up throughout a day, or the unfiltered daily morning/evenings pages
 
->once the thoughts are developed, they are placed in their own folders, which as of today as "love letter from your chica", "midnight cravings", "ongoing lists" and "project amor".
+>once the thoughts are developed, they are placed in their own folders, which as of today are "love letter from your chica", "midnight cravings", "ongoing lists" and "project amor".
 
 >most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 
