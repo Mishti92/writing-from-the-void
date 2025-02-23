@@ -19,7 +19,7 @@ Feb 19, 2022 - 3 years before from today ( wow, it really has been 3 years), I h
 
 La perfeccionista in me wanted it to be perfecto. I had downloaded this app that helps you plan your trip to a dot. And for those three days of the trip, I filled it with a detailed itinerary of what we would be doing, where we would be staying, where we would be eating, where we would enjoy our evenings and where we would go for a day visit. I had the experience under control and my sister was going to have a great time on her birthday.
 
-I had booked an airbnb in Beyoglu, next to Galata Tower - a perfect spot based on the images for her to relax after her semester papers and enjoy her birthday from. That first day, we met at the Istanbul Airport as she was arriving from Italy, where she was doing her masters and [[I was coming from UK]], after spending 2 weeks with my elder sister. 
+I had booked an airbnb in Beyoglu, next to Galata Tower - a perfect spot based on the images for her to relax after her semester papers and enjoy her birthday. That first day, we met at the Istanbul Airport as she was arriving from Italy, where she was doing her masters and [[I was coming from UK]], after spending 2 weeks with my elder sister. 
 
 An hour in, after arriving to our airbnb, I had a major outburst. Our airbnb didn’t turn out as I had imagined. It wasn’t cleaned and it was nothing like the pictures. I immediately went into a fix mode, contacting the airbnb owner to cancel it but also panicking that we don’t have a place to stay now and the whole birthday trip is going to get ruined. I didn’t speak Turkish and for the first time, I am navigating a country where we don’t share a common language. 
 
