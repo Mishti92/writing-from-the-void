@@ -6,10 +6,10 @@ In October 2023, in a frozen state, I started *my travels* by outsourcing decisi
 
 These one-way flights to unknown places in the world, while leaving behind everything I had ever known was a cry for help, or maybe a shot in the dark, or maybe me running away from pain. I was in a frozen state of mind - *I can't recall the emotion or what was going on in my mind. I only remember that I gave myself permission to let go, to let myself flow where the wind was taking me*.
 
-It would take me 3 months post the *first one way ticket to Delhi,* hopping between 2 countries and 4 cities later, to [[fall on my knees, pray for strength]] and set an intention to begin the search for home, he home within
+It would take me 3 months post the *first one way ticket to Delhi,* hopping between 2 countries and 4 cities later, to fall on my knees, pray for strength and set an intention to begin the search for home, the home within
 
 I did not set out to travel the world, to be _homeless,_ to wander around aimlessly. It was not planned. It was an act of surrender to the workings of the universe. 
-_To let myself [[flow with the water]]._ 
+_To let myself flow with the water. 
 To let the waves take me wherever the wind blows. 
 To surrender to the ways of the universe. 
 
