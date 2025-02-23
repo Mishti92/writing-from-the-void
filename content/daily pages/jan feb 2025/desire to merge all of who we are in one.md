@@ -24,7 +24,7 @@ be solution oriented. when problem arises, if its causing an emotional reaction,
 
 you have to trust yourself to make the right decision and go ahead with it. and when you can't decide which path to take, collect more information about what will help you decide it better. or sometimes, let your creativity take the lead. make space for your curiosity. 
 
-how do you know which is the right place for you to settle in, how do [[you choose where home is]]?
+how do you know which is the right place for you to settle in, how do you choose where home is?
 
 you make a choice and decide to call a place a home. you can see yourself living there and co-creating life together. you accept it's flaws, but also understand the potential for growth. you accept it for what the place is as of today. you make a conscious decision to call it home.  knowing it will take some work on your part too, to understand this new home better to adjust to it slowly and live a life together. 
 
