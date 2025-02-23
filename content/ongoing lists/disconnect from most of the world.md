@@ -17,11 +17,13 @@ go out dancing once in 2/3 weeks
 
 **anatomy of a day:**
 
-kahwa and morning/evening pages *(it has been more evening than morning lately)*
+chai and morning/evening pages *(it has been more evening than morning lately)*
 
 unstructured learning, curiosity driven exploration for an hour or two
 
 daily midnight cravings: intuitive yoga, dance freely, floor flow, spinal waves, whining, hip isolations, i want to learn how to twerk
+
+an hour or so organizing, sorting and developing the ideas and notes on the daily pages
 
 ***notes for self:***
 
