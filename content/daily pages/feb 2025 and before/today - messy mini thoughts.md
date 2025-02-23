@@ -1,4 +1,7 @@
 
+record your journey to these 30 days. if it will help you. show progress. motivation. and how you thought process changed over these 30 days. how to stop distractions. going cold turkey. phone. browser. email. self expression, fluidity, creativity, save the part of you that expresses freely. conversations i have with myself. conversations i cna have with other people. 
+
+bottom up thinking - make the product management concepts more humane, driven by love. 
 
 1. saturday 1st March, [chai date](https://lu.ma/lo3zwyrp) ; capped at 10. let's chat about life, moving freely, business, creativity, existential crisis and all things love. i don't do one-on-one chai dates yet so this is an affordable and the only way to hire my brain for whatever is taking up your mind space. 
 
