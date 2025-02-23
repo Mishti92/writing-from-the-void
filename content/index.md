@@ -4,7 +4,7 @@ title: hi
  
 *offline, mostly.* 
 
-deleted all social media accounts and writing from the void lately.
+[[deleted all social media accounts]] and writing from the void lately.
 
 plan: [[disconnect from most of the world]], in a tiny island, south of Brazil. 1 month. 2 months. 3 months. [[no sé]]. 
 
