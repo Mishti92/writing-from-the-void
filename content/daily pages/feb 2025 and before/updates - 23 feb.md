@@ -1,8 +1,9 @@
 
-1. saturday 1st, [chai date](https://lu.ma/lo3zwyrp) ; capped at 10 ; 
-biweekly at 2 different times ; 
+1. saturday 1st, [chai date](https://lu.ma/lo3zwyrp) ; capped at 10. let's chat about life, moving freely, business, creativity, existential crisis and all things love. i don't do one-on-one chai dates yet so this is an affordable and the only way to hire my brain for whatever is taking up your mind space
 
-*only register if you can make it live to the call so you are taking someone else's spot. recording will be sent everyone in la casa*
+future plan: bimonthly at 2 different times to accomodate different time zones. 
+
+*only register if you can make it live to the call so you are not taking someone else's spot. recording will be sent everyone in la casa*
 
 2. put together a blog/digital journal in less than 24 hours - [shae's journal](https://shaesjournal.xyz/)
 
