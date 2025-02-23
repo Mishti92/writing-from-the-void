@@ -9,6 +9,6 @@ future plan: bimonthly at 2 different times to accomodate different time zones.
 
 will be writing here going on, to sort through my thoughts, ideas, stories. let it come together in its own magical way, not trying to make something specific out of it but just following my curiosity
 
-1. joy of moving freely - march ? do I want to do it, do I have time and energy for it? what's my reason to host it if i will?
+3. joy of moving freely - march ? do I want to do it, do I have time and energy for it? what's my reason to host it if i will?
 
 
