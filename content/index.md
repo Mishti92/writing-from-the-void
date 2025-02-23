@@ -16,7 +16,7 @@ and [[so the story begins]]
 
 ---
 
->daily pages is where i put my random thoughts that come up throughout a day, or the unfiltered daily morning/evenings pages ( what i choose to share publicly)
+>working pages is where i put my random thoughts that come up throughout a day, or the unfiltered daily morning/evenings pages ( what i choose to share publicly)
 
 >once the thoughts are developed, they are placed in their own folders, which as of today are "love letter from your chica", "midnight cravings", "ongoing lists" and "project amor".
 
