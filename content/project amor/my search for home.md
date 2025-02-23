@@ -9,9 +9,6 @@ These one-way flights to unknown places in the world, while leaving behind every
 It would take me 3 months post the *first one way ticket to Delhi,* hopping between 2 countries and 4 cities later, to fall on my knees, pray for strength and set an intention to begin the search for home, the home within
 
 I did not set out to travel the world, to be _homeless,_ to wander around aimlessly. It was not planned. It was an act of surrender to the workings of the universe. 
-_To let myself flow with the water. 
-To let the waves take me wherever the wind blows. 
-To surrender to the ways of the universe. 
 
 For someone who has been a control freak all her life, _this was the upside down ._
 
