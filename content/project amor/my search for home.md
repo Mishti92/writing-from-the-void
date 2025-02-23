@@ -2,7 +2,7 @@ For the past 1.5 years, I have been on the road, traveling from city to city, co
 
 This year, I feel safer in my nervous system, when I know with some degree of certainty [[where I will be staying atleast a month in advance]].
 
-In October 2023, in a frozen state, I started *my travels* by outsourcing decision-making to the carton of eggs in my fridge—surrendering to the universe, trusting that I would take my next step, one one-way flight at a time, whenever I ran out of eggs.
+In October 2023, in a frozen state of mind, I started *my travels* by outsourcing decision-making to the carton of eggs in my fridge—surrendering to the universe, trusting that I would take my next step, one one-way flight at a time, whenever I ran out of eggs.
 
 These one-way flights to unknown places in the world, while leaving behind everything I had ever known was a cry for help, or maybe a shot in the dark, or maybe me running away from pain. I was in a frozen state of mind - *I can't recall the emotion or what was going on in my mind. I only remember that I gave myself permission to let go, to let myself flow where the wind was taking me*.
 
