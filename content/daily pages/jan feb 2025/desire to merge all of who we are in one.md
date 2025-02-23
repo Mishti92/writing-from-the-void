@@ -3,6 +3,10 @@
 question i have: did the pain push you to heal your wounds or maybe you went all in for your work. put a lock on all the matters of your heart and only allow mind at work. 
 
 
+I had vision of the dress in mind as I went into the store and explain to the lady, what I was looking for. She said we didn’t have it, but said that she would look in the back. I didn’t know exactly what I was looking for, but it was supposed to be a full length black dress backless. And when she got it out, she found something and she showed it to me, and I knew that was it I hadn’t seen it before, but just somehow I could picture myself in it. I didn’t know what it was for yet until today when I decided I want to celebrate the moon. I want to have a [date with myself and the ocean](https://www.youtube.com/watch?v=bkC1sx8LW7A), the waves of ocean under the light of the full moon, la Luz Te La Luna. 
+
+
+
 we all have a constant desire to merge all of who we are in one. become us. find ourselves. 
 while some may find peace eventually in keeping it separate ( in silo ), most of us crave self-actualization. this is the becoming for all of us. 
 
