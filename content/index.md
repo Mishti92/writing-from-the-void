@@ -17,3 +17,9 @@ I will be using [this space](https://www.youtube.com/@ps_yourchica) to share my 
 most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 
 and [[so the story begins]]
+
+---
+
+>*daily pages is where i put my unstructured, random thoughts that come up throughout a day, or the unfiltered daily morning/evenings pages*
+
+>*once the thoughts are developed, they are places in their own folders, which as of today as "love letter from your chica", "midnight cravings", "ongoing lists" and "project amor".*
