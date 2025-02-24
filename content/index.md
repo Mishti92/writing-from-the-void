@@ -1,5 +1,6 @@
 ---
 title: hi
+tags:
 ---
 *offline, mostly.* 
 
