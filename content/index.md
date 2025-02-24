@@ -4,7 +4,7 @@ tags:
 ---
 *offline, mostly.* 
 
-deleted all social media accounts and writing from the void lately.
+deleted all social media apps and writing from the void lately.
 
 plan: disconnected from most of the world, develop a [[routine]], in a tiny island, south of Brazil. 1 month. 2 months. 3 months. [[no sé]]. 
 
