@@ -1,0 +1,1 @@
+, after being with my elder sister for a while. That month, in the February of 2022, was one of the first times I had gone for my solo travels, the purpose being to spend some time with my sisters.
