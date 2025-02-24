@@ -80,6 +80,5 @@ It’s not meant to be easy but thats also why, that voice only reaches those wh
 trust your inner voice. trust your curiosity, trust your timing. trust your pace. trust your story.
 
 I fucking love you.
-
 your chica 💋
 

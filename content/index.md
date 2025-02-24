@@ -17,7 +17,7 @@ and [[so the story begins]]
 
 >working pages is where i sort mini thoughts / ideas from my daily pages ( what i choose to share publicly )
 
->once the thoughts are developed, they are placed in their own folders, which as of today are "love letter from your chica", "midnight cravings", "ongoing lists" and "project amor".
+>once the thoughts are developed, they are placed in their own folders, which as of today are "letters from your chica", "ongoing lists" and "project amor".
 
 >most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 
