@@ -18,6 +18,7 @@ bachelors, masters in computer science
 long term trainings: 200hr, 300hr yoga, floor flow
 
 multiple additional trainings on science of flexibility, hypermobility, anatomy/biomechanics of yoga, the science of breathing, massage techniques, lymphatic system
- 
+
+countless courses on marketing, some good, some meh
 
 
