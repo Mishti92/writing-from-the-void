@@ -10,4 +10,4 @@ _**Sometimes a place chooses you to be your home and sometimes, you choose where
 
 I watched the first episode of Marco Polo on netflix yesterday. There was a dialogue in there that spoke to me: _“I was terrified the first time I left home. Venezia was all I had ever known. Do you know how I persevered? Knowing just where home was… and that I could always return to it.” ~ Niccolò Polo to his son, Marco Polo_
 
-I haven't finished the full episode yet (_i fell asleep)_, so I can't tell what _home_ meant in the show's context. But let me tell you about  _[[my search for home]]_, a search of lifetime perhaps but one that has played out more vividly in the last 1.5 years of my life.
+I haven't finished the full episode yet (_i fell asleep)_, so I can't tell what _home_ meant in the show's context. But let me tell you about  _[[daily pages/my search for home]]_, a search of lifetime perhaps but one that has played out more vividly in the last 1.5 years of my life.
