@@ -1,3 +1,12 @@
+
+---
+
+tags:
+
+draft: false
+
+---
+
 *this page would evolve as i understand myself more and balance my curiosities, intuition and deliberate action*
 
 

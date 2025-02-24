@@ -1,3 +1,8 @@
+---
+tags:
+  - creativity
+draft: false
+---
 It’s not that you do not have any good ideas. The problem is that you believe you have a reserve of finite ideas and if you don’t act on them immediately, if you don’t organize and sort through the backlog or if these finite ideas don’t _perform_ based on a certain metric, then you are doing something wrong.
 
 I ask you to believe in the abundance of your creativity and in the abundance of your ideas. To trust that inspiration will always flow through you. That you are a vessel for endless possibility and there is no shortage, no lack —only infinite expression.

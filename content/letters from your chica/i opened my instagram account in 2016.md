@@ -1,4 +1,10 @@
+---
 
+tags:
+
+draft: false
+
+---
 *23.01.25*
 
 I had one in 2011 too. I remember posting a pic. A selfie with a heavy filter on it, taken from my room in Delhi and highlighting my eyes lined with kajal. I don’t remember what I had named it, probably something that conveys “I am mysterious”.  

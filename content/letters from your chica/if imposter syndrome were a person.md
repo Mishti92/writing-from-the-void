@@ -1,3 +1,10 @@
+---
+
+tags:
+
+draft: false
+
+---
 *26.12.24*
 
 it would be me—in flesh and blood. and oh, how well I mask it.

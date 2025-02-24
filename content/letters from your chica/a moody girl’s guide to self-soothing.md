@@ -1,3 +1,10 @@
+---
+
+tags:
+
+draft: false
+
+---
 Accept that you are a bit low, sad, moody, whatever you want to call it. Don’t gaslight yourself. It’s okay to feel. It’s okay to be sad. It’s okay to be moody.
 
 Take a shower. Bless hot showers.  

@@ -1,3 +1,10 @@
+---
+
+tags:
+
+draft: false
+
+---
 
 | date     | number of words written |
 | -------- | ----------------------- |
