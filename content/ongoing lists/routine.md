@@ -6,13 +6,13 @@ draft: false
 
 *this page would evolve as i understand myself more and balance my curiosities, intuition and deliberate action*
 
-**intentions:**
+##### **intentions:**
 - reduce [[screen time]]
 - write: check [[number of words written]]
 - prioritize existing connections over finding new ones
 
 
-**anatomy of a week:**
+##### **anatomy of a week:**
 
 spend most days at home, minimal external input 
 
@@ -26,23 +26,20 @@ weekly bachata on Sundays by the trapiche, after having the delicious shawarma f
 go out dancing once in 2/3 weeks 
 
 
-**anatomy of a day:**
+##### **anatomy of a day:**
 
-chai and morning/evening pages *(it has been more evening than morning lately)*
-
-unstructured learning, curiosity driven exploration for an hour or two
+for an hour or two:
+- chai and morning/evening pages *(it has been more evening than morning lately)*
+- unstructured learning, curiosity driven exploration
+- organizing, sorting and developing the ideas and notes on the daily pages
+- do nothing and get bored 
+- [[fun bucket]]: movie, youtube videos
 
 daily midnight cravings: intuitive yoga, dance freely, floor flow, spinal waves, whining, hip isolations, i want to learn how to twerk
 
-an hour or so organizing, sorting and developing the ideas and notes on the daily pages
-
-do nothing and get bored for an hour or two 
-
 i need to explore what time of the day is best for reading for me
 
-[[fun bucket]]: movie, youtube videos
-
-***notes for self:***
+##### ***notes for self:***
 
 figure out how to access a gym and a swimming pool for this time period:
 
