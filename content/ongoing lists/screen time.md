@@ -11,13 +11,23 @@ instagram has been my *work* for a while now and the line had blurred a long tim
 
 | date     | screen time | notes                                                   |
 | -------- | ----------- | ------------------------------------------------------- |
+| 26.01.25 | 5hr 53min   |                                                         |
+| 31.01.25 | 8hr 18min   |                                                         |
+| 11.02.25 | 8hr 23min   |                                                         |
+| 12.02.25 | 2hr 29min   |                                                         |
+| 13.02.25 | 3hr 6min    |                                                         |
+| 14.02.24 | 5hr 21min   |                                                         |
+| 15.02.25 | 4hr 13min   |                                                         |
+| 16.02.25 | 3hr 49min   |                                                         |
+| 17.02.25 | 1hr 17min   |                                                         |
+| 18.02.25 | 2hr 25min   |                                                         |
 | 19.02.25 | 4hr 18min   | *talked for an hour with my younger sister on whatsapp* |
 | 20.02.25 | 2hr 26min   |                                                         |
 | 21.02.25 | 1hr 48min   |                                                         |
-| 22.02.25 | 4hr 54min   | *not sure why i have spent 3 hours on whatspp*          |
+| 22.02.25 | 4hr 54min   | *not sure why i have spent 3 hours on whatsapp*         |
 | 23.02.25 | 1hr 9min    |                                                         |
 | 24.02.25 |             |                                                         |
-
+ 
 
 
 [^1]: [[random movements has to die]]
