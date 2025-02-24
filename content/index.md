@@ -1,7 +1,8 @@
 ---
 title: hi
 ---
- 
+test [[2025-02-24]] 
+
 *offline, mostly.* 
 
 deleted all social media accounts and writing from the void lately.
