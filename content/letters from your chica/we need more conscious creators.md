@@ -1,7 +1,7 @@
 ---
 tags:
   - technology
-draft: false
+draft: true
 ---
 
 Artists. Website designers, developers. Copywriters. Movement facilitators. Photographers. Community Builders. Marketers.  
