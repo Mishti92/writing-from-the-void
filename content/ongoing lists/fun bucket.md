@@ -2,8 +2,6 @@
 tags:
   - seeds
 ---
-
-
 [Domingo: Vow Renewal – SNL50](https://www.youtube.com/watch?v=LLKJwP1wdqA)
 best described with this comment: 
 *Pedro pascal restarting his verse and still being off tempo made it 100 times funnier.

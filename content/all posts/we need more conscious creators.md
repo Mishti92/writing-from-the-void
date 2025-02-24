@@ -60,7 +60,7 @@ You entered this world with a desire _or maybe it’s time for you to question i
 And somewhere along the way, you are lost, you feel like you are selling your soul to the devil, lol.
 
 But my loves, tech is not the devil and no, you don’t need to run away to a farm and disappear off the face of earth to live a content life.
-( wrote this just before I decided to take a pause and [[disconnect from most of the world]])
+( wrote this just before I decided to take a pause and [[routine]])
 
 _although not a bad idea, but land is expensive af these days and we do live in a world where resources are shared with this thing called money. And you gotta have money to spend money, right?_
 

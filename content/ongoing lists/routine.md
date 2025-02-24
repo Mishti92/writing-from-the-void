@@ -6,6 +6,12 @@ draft: false
 
 *this page would evolve as i understand myself more and balance my curiosities, intuition and deliberate action*
 
+**intentions:**
+- reduce [[screen time]]
+- write: check [[number of words written]]
+- prioritize existing connections over finding new ones
+
+
 
 **anatomy of a week:**
 
@@ -31,8 +37,20 @@ daily midnight cravings: intuitive yoga, dance freely, floor flow, spinal waves,
 
 an hour or so organizing, sorting and developing the ideas and notes on the daily pages
 
+do nothing and get bored for an hour or two 
+
+i need to explore what time of the day is best for reading for me
+
+[[fun bucket]]: movie, youtube videos
+
 ***notes for self:***
 
-figure out how to access a gym and a swimming pool for this time period. 
+figure out how to access a gym and a swimming pool for this time period:
 
+*update as of feb 24:*
+i have decided not to look for gym for this time duration (the nearest one is 30 minutes away) and use my existing knowledge of body movement and building habits to show up everyday. 
+
+i have lost the habit of going to gym 2-3 times a week and i need to become the person who does strength training as a routine. gym adds to it but is not necessary. so in this experiment of disconnecting from the world, writing from the void, changing my brain chemistry, i am going to prioritize practice over the tools. 
+
+will reflect on this once i show up for my morning strength training session *(min 20 minutes)* for a week. 
 

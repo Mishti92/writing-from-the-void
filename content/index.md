@@ -6,7 +6,7 @@ tags:
 
 deleted all social media accounts and writing from the void lately.
 
-plan: [[disconnect from most of the world]], in a tiny island, south of Brazil. 1 month. 2 months. 3 months. [[no sé]]. 
+plan: disconnected from most of the world, develop a [[routine]], in a tiny island, south of Brazil. 1 month. 2 months. 3 months. [[no sé]]. 
 
 this is the system I have built to let my creativity and curiosity take the lead and let the words pour out of me, removing all sorts of distractions with intentional entropy. 
 
