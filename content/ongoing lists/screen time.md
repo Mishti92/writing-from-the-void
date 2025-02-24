@@ -3,13 +3,13 @@ tags:
   - metrics
 draft: false
 ---
-post deactivating all social media accounts and intentionally/mindfully using my devices, one of the metrics I have been curious about is my screen time. I don't believe that it is possible to reduce it to less than an hour everyday because we do use our phones for various *important* use-cases. 
+post deactivating all social media accounts and intentionally/mindfully using devices, one of the metrics I have been curious about is my screen time. I don't believe that it is possible to reduce it to less than an hour everyday because we do use our phones for various *important* use-cases. 
 
 *to reflect on: what you think is important vs what can you let go, so a new routine can be formed*
 
 instagram has been my *work* for a while now and the line had blurred a long time back - between using it for work (marketing for random movements[^1]) and mindless scrolling, getting exposed to multitude of new information which impacts my ability to do my own creative work.  
 
-i intend to understand how to best use my devices in a way that adds to my life. and develop routines that allow me to integrate social media as a way to connect, communicate and share my work. 
+i intend to understand how to best use my devices in a way that adds to my life. and develop routines that allow me to integrate social media back in my life, as a way to connect, communicate and share my work. 
 
 *use technology, rather than get used by technology*
 
