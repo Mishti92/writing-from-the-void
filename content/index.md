@@ -15,7 +15,7 @@ and [[so the story begins]]
 
 ---
 
->working pages is where i sort mini thoughts / ideas from my daily pages ( what i choose to share publicly )
+>thoughts is where i sort ideas from my daily pages, plant seeds for future ( what i choose to share publicly )
 
 >once the thoughts are developed, they are placed in their own folders, which as of today are "letters from your chica", "ongoing lists" and "project amor".
 

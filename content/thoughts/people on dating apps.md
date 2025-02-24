@@ -1,3 +1,8 @@
+---
+tags:
+  - seeds
+draft: false
+---
 ones who install the app, use it for a or two week, go on one or two dates, get disappointed and delete it, declaring they are done with dating apps. But they come back after a month, forgetting why they deleted it in the first place.
 
 ones who have bought the premium version of the app and have the app just lying there forever, in the corner of the screen. 

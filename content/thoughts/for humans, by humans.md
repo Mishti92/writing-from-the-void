@@ -1,3 +1,10 @@
+---
+title: for humans, by humans
+tags:
+  - seeds
+draft: false
+---
+
 be a human and build businesses that help other humans
 
 everyone needs to know this thing about running businesses
