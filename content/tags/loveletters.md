@@ -1,0 +1,1 @@
+written as mostly stream of consciousness exploring the messiness and joy of being human. rooted in anticapitalist sentiments and a great desire to unlearn the societal messaging that makes us believe we never HAVE enough and never ARE enough
