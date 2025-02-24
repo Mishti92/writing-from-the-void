@@ -1,3 +1,11 @@
+---
+
+tags:
+
+draft: false
+
+---
+
 *19.02.25*
 
 I was reminding my parents yesterday to not forget to call her, as she would feel sad otherwise. Alas, it was me who almost forgot to wish her.

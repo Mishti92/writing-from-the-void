@@ -1,3 +1,13 @@
+
+---
+
+tags:
+
+draft: false
+
+---
+
+
 *24.01.25*
 
 The way it has come together in the last few weeks has been magical. Although it feels like years and years in making.

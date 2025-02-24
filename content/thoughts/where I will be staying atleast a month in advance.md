@@ -1,4 +1,13 @@
 
+---
+
+tags:
+
+draft: false
+
+---
+
+
 first food water warmth rest
 *roti, kapda aur makaan*
 food, clothing and shelter

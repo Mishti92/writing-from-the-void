@@ -1,4 +1,12 @@
 
+---
+
+tags:
+
+draft: false
+
+---
+
 remember:
 
 expect nothing, open for everything

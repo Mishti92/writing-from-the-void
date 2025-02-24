@@ -1,3 +1,11 @@
+---
+
+tags:
+
+draft: false
+
+---
+
 *21.02.25*
 
 question i have: did the pain push you to heal your wounds or maybe you went all in for your work. put a lock on all the matters of your heart and only allow mind at work. 
