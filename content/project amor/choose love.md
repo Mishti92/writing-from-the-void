@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 every time I find myself in a place of uncertainty, doubt, judgement or shame,  
 I make a conscious decision to choose love over fear.  
 

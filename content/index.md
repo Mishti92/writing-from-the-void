@@ -15,9 +15,9 @@ and [[so the story begins]]
 
 ---
 
->thoughts is where i sort ideas from my daily pages, plant seeds for future ( what i choose to share publicly )
+> #seeds  is where i sort ideas from my daily pages ( what i choose to share publicly )
 
->once the thoughts are developed, they are placed in their own folders, which as of today are "letters from your chica", "ongoing lists" and "project amor".
+>once the thoughts are developed, they are categorized as #loveletters , #projectAmor , #creativity
 
 >most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 

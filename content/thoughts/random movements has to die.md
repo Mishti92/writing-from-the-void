@@ -1,9 +1,7 @@
 ---
-
 tags:
-
+  - seeds
 draft: false
-
 ---
 
 

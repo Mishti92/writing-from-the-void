@@ -1,9 +1,7 @@
 ---
-
 tags:
-
+  - seeds
 draft: false
-
 ---
 
 *24.12.24*

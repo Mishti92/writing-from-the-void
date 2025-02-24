@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 El chico de francés texted me today that he felt it was a bit of red flag – the fact _according to him_ that I didn’t understand that he was busy and I had asked him to apologize.  
 _context: I was flirting while being mean!_
 

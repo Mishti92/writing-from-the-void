@@ -1,6 +1,5 @@
 ---
-tags:
-  - technology
+tags: []
 draft: false
 ---
 

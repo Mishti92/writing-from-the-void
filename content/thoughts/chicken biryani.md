@@ -1,10 +1,7 @@
-
 ---
-
 tags:
-
+  - seeds
 draft: false
-
 ---
 
 movement as a craving. what's your chicken biryani. i will expand on this later. i know it doesnt make much sense right now. 

@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 **[8:35 p.m., 2025-02-20]**
 
 shae: i found a video of me and Z (*my ex*) dancing together in the living room.

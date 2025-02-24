@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 I want you to know that i am happy we crossed paths  
 that even if our time together were just those moments, your presence in my life meant something.
 

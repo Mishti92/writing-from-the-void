@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 We are in a cabin in the woods. There is a river stream flowing by. You can hear the sound of water flowing. It feels soothing, consistent and calming. The sound of the rain makes you feel cozy and the sudden thundering at times reminds you that are alive. That becomes the background music to this scene, along with the sound of AC, sound of dehumidifier, the sound of fridge making very loud sounds and the occasional tip tap of a water droplet from the sink faucet. Sounds that feels like home.
 
 A dim yellow light over the dinner table, positioned midway between the kitchen on one side of the studio and the bed on the opposite side. There is a [yoga mat on the floor](https://www.youtube.com/watch?v=Gg_MBaK3pH4&t=144s), a pink one, half rolled, half spread out. Under that light, I am typing something on the laptop, taking some breaks in between to sip my [sleepytea](https://www.youtube.com/watch?v=Bpmny-M-qQo&t=214s), placed in a cup on my left side, and [ravioli pasta](https://www.youtube.com/watch?v=Ij7IveHQnbU&t=591s) for dinner on my right. 

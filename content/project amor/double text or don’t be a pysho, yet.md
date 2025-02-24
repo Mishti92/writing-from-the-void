@@ -1,3 +1,8 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
 I told you about my unplanned visit to the cemetery, and how the dim white glow of la luna guided me down the path, leading me to a church where I stood outside for some 5 minutes or so, listening to the sound of prayers coming from the church. Sound that felt like a symphony to my ears. I saw a lady and a man seated on two rows, one after the other. Hands on their laps, facing the front of the church.
 
 “Portuguese language sounds like music to me”. When I said that to the Brazilian guy I met yesterday, he replied with “Clearly you haven’t heard a mother shouting at her child yet!”.

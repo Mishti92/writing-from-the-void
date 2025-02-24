@@ -1,3 +1,9 @@
+---
+tags:
+  - projectAmor
+draft: false
+---
+
 For the past 1.5 years, I have been on the road, traveling from city to city, country to country, and as of today, I find myself in this beautiful country of Brazil, deciding to extend my stay for at least another month.
 
 This year, I feel safer in my nervous system, when I know with some degree of certainty [[daily pages/where I will be staying atleast a month in advance]].
