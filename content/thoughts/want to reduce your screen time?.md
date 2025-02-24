@@ -3,6 +3,7 @@ tags:
   - seeds
 draft: false
 ---
+tracking [[screen time]]
 
 Go analog when in flow and when the systems are setup, go digital intentionally. Plant the seeds for a life that you want to live. Water it daily. And make sure you get enough sunlight in a day. As while the seeds are sprouting, put on[ Kizomba beats](https://open.spotify.com/playlist/37i9dQZF1DX1l6qs3gcM4U?si=f9bc392958d847b4) and let your hips sway while you are typing that note on your laptop. Or hit [move your spine](https://open.spotify.com/playlist/237JXEMYWRibmAWyCRiXQw?si=4d9fd6a4737f4f20) playlist to satisfy your movement cravings, as you experiment with your cooking skills.
 
