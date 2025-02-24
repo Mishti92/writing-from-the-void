@@ -5,6 +5,8 @@ linkedin  ( deactivated at the moment )
 
 instagram ( deactivated at the moment )
 
+career in product management from 2018 to 2023
+
 **what i studied:** 
 
 bachelors, masters in computer science
