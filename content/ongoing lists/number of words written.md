@@ -1,9 +1,7 @@
 ---
-
 tags:
-
+  - seeds
 draft: false
-
 ---
 
 | date     | number of words written |

@@ -1,9 +1,7 @@
 ---
-
 tags:
-
+  - creativity
 draft: false
-
 ---
 *26.12.24*
 
