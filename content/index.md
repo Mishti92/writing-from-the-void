@@ -12,13 +12,11 @@ this is the system I have built to let my creativity and curiosity take the lead
 
 changing my brain chemistry to create for my soul and connect the dots of [[all I have ever been]] and all I want to be.
 
-and [[so the story begins]]
-
 ---
 
 > #seeds  is where i sort ideas from my daily pages ( what i choose to share publicly )
 
->once the thoughts are developed, they are categorized as #loveletters , #projectAmor , #creativity
+>once the thoughts are developed, so far they are categorized as #loveletters and #creativity
 
 >most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 
