@@ -22,4 +22,4 @@ and [[so the story begins]]
 
 >most of the notes here would be messy, half-formed, and unpolished. if you find yourself on this side of the void and if you don't understand something, it's probably because it's written mainly for me.
 
->I will be using [youtube](https://www.youtube.com/@ps_yourchica) to share my midnight cravings (intuitive, free flow movement, aka [[chicken biryani]] for the soul) as it is, unedited and may play around with some video essays.
+>I will be using [youtube](https://www.youtube.com/@ps_yourchica) to embody the practice, share my midnight cravings (intuitive, free flow movement, aka [[chicken biryani]] for the soul) as it is, unedited and may play around with some video essays.
