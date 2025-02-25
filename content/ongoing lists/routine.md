@@ -3,13 +3,14 @@ tags:
   - seeds
 draft: false
 ---
-
-*this page would evolve as i understand myself more and balance my curiosities, intuition and deliberate action*
+*this page would evolve as i understand myself more and balance my 
+curiosities, intuition and deliberate action*
 
 ##### **intentions:**
 - reduce [[screen time]]
 - write: check [[number of words written]]
 - prioritize existing connections over finding new ones
+- *develop a routine to enable the practice*
 
 
 ##### **anatomy of a week:**

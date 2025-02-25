@@ -33,5 +33,4 @@ to satisy the bottom most tier of the pyramid
 roti kapda makaan
 
 then safety and security
-muy importante.
-
+muy importante

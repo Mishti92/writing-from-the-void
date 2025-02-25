@@ -3,8 +3,6 @@ tags:
   - seeds
 draft: false
 ---
-
-
 *written and shared on 9.1.25*
 
 and this is an invitation to opt out.
