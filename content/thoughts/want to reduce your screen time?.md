@@ -13,7 +13,7 @@ Remove the weeds that may grow along the way - be aware when you pick up the pho
 
 Some seeds will sprout quickly, while others will remain dormant until the time is right.  Some ideas need to marinate ([you should atleast marinate chicken for 2 hours for chicken biryani](https://www.reddit.com/r/IndianFood/comments/qm5kus/how_long_should_i_marinate/)). 
 
-You must [[believe in the abundance of your creativity]], trusting that there is enough space and time for all your ideas to grow. And don't forget your daily [practice](https://www.youtube.com/@ps_yourchica/videos)—intentionally build a routine to water the seeds, to help them grow. But make sure to not over water. Too much water, and it can drown; too little, and it may wither.
+You must [[believe in the abundance of your creativity]], trusting that there is enough space and time for all your ideas to grow. And don't forget your daily [practice](https://www.youtube.com/@ps_yourchica/videos)—intentionally build a [[routine]] to water the seeds, to help them grow. But make sure to not over water. Too much water, and it can drown; too little, and it may wither.
 
 Allow space for your seeds to breathe, to stretch, to reach toward the light. Trust the process, even when progress feels slow. Each small action is a step toward blooming, and as you nurture these seeds, the abundance of your creativity will unfold in ways you couldn’t have imagined.
 
