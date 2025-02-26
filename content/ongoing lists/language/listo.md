@@ -8,10 +8,8 @@ tags:
 
 *spanish* vamos | listo
 
-*turkish* hadi gidelim 
+*turkish* hadi gidelim | tamam gidelim
 
-*urdu* chalo
-
-*hindi* chalo
+*urdu/hindi* chalo chalte hai 
 
 *kashmiri* walae'v pakh sa

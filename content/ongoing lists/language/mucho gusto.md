@@ -12,4 +12,4 @@ tags:
 
 *urdu/hindi* aap se mil kar khushi hui | aap se mil kal accha laga
 
-*kashmiri* i will ask my brother
+*kashmiri* tcze mil kar gov' mae dil khosh
