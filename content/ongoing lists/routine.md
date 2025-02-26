@@ -34,7 +34,7 @@ for an hour or two:
 - unstructured learning, curiosity driven exploration
 - organizing, sorting and developing the ideas and notes on the daily pages
 - do nothing and get bored 
-- [[fun bucket]]: movie, youtube videos
+- [[videos i enjoyed watching]]: movie, youtube videos
 
 daily midnight cravings: intuitive yoga, dance freely, floor flow, spinal waves, whining, hip isolations, i want to learn how to twerk
 
