@@ -13,4 +13,4 @@ tags:
 
 *urdu/hindi* میں تم سے بہت پیار کرتا ہو۔ main tum se "bahut" pyaar karta hoon
 
-*kashmiri* czi chuk m'yon jigar ( you are my heart - liver in translation ) or mae chu zoun' cze man'z (my soul is with you)
+*kashmiri* tske chhuk myon jigur ( you are my heart - liver in translation ) or mae chu zoun' tsze man'z (my soul is with you)
