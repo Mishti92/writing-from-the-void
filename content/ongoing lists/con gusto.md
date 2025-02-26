@@ -3,13 +3,13 @@ tags:
   - usefulPhrases
 ---
 
-*english* 
+*english* you are welcome
 
-*portugeuse* 
+*portugeuse* de nada
 
-*spanish* 
+*spanish* con gusta ( in medellin, mi amor) | de nada everywhere else
 
-*turkish*
+*turkish* rica ederim
 
 *urdu* 
 
