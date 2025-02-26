@@ -3,16 +3,16 @@ tags:
   - usefulPhrases
 ---
 
-*english* you are welcome
+*english* you are welcome , it's nothing
 
 *portugeuse* de nada
 
-*spanish* con gusta ( in medellin, mi amor) | de nada everywhere else
+*spanish* con gusto ( in medellin you say *with pleasure*) | de nada 
 
 *turkish* rica ederim
 
-*urdu* 
+*urdu* koi baat nahi 
 
-*hindi* 
+*hindi* koi baat nahi 
 
-*kashmiri*
+*kashmiri* keh chu' ne ( it's nothing )
