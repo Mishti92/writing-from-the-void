@@ -2,10 +2,9 @@
 tags:
   - usefulPhrases
 ---
-
 *english* lets go | i am ready
 
-*portugeuse* vamos | pronto
+*portuguese* vamos | pronto
 
 *spanish* vamos | listo
 

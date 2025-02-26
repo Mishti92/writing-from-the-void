@@ -2,10 +2,9 @@
 tags:
   - usefulPhrases
 ---
+*english* where is the bathroom
 
-*english* where is the bathoom
-
-*portugeuse* onde fica o banheiro
+*portuguese* onde fica o banheiro
 
 *spanish*  dónde está el baño
 

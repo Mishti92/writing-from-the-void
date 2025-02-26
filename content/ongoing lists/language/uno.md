@@ -4,7 +4,7 @@ tags:
 ---
 *english* one
 
-*portugeuse* um
+*portuguese* um
 
 *spanish* uno
 

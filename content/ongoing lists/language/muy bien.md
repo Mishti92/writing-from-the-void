@@ -6,7 +6,7 @@ reply to [[cómo estás]]
 
 *english* I am good
 
-*portugeuse* tudo bem
+*portuguese* tudo bem
 
 *spanish* muy bien | bien, [[gracias]] ( i am good , thanks)
 

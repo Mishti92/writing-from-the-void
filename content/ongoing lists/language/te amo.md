@@ -2,10 +2,9 @@
 tags:
   - usefulPhrases
 ---
-
 *english* i love you
 
-*portugeuse* eu te amo
+*portuguese* eu te amo
 
 *spanish* te amo ( te quiero for passion )
 

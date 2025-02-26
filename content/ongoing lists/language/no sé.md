@@ -5,7 +5,7 @@ tags:
 
 *english* i don't know
 
-*portugeuse* não sei
+*portuguese* não sei
 
 *spanish* no sé
 

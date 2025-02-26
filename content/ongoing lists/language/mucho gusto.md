@@ -2,17 +2,14 @@
 tags:
   - usefulPhrases
 ---
+*english* nice to meet you
 
-*english* 
+*portuguese* muito prazer
 
-*portugeuse* 
+*spanish* mucho gusto
 
-*spanish* 
+*turkish* çok memnun oldum
 
-*turkish*
+*urdu/hindi* aap se mil kar khushi hui | aap se mil kal accha laga
 
-*urdu* 
-
-*hindi* 
-
-*kashmiri*
+*kashmiri* i will ask my brother

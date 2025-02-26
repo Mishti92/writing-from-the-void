@@ -5,7 +5,7 @@ tags:
 
 *english* thank you
 
-*portugeuse* obrigado ( muito obrigado for more love )
+*portuguese* obrigado ( muito obrigado for more love )
 
 *spanish* gracias ( muchas gracias for more love )
 

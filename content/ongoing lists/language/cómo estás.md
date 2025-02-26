@@ -2,11 +2,9 @@
 tags:
   - usefulPhrases
 ---
-reply here [[muy bien]]
-
 *english* how are you?
 
-*portugeuse* tudo bem? ( everything good)
+*portuguese* tudo bem? ( everything good)
 
 *spanish* cómo estás | que tal
 
@@ -17,3 +15,5 @@ reply here [[muy bien]]
 *hindi* aap kaise ho? 
 
 *kashmiri* czi chuke' theek? ( are you okay?)
+
+you reply: [[muy bien]]

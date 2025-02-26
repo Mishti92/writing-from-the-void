@@ -2,10 +2,9 @@
 tags:
   - usefulPhrases
 ---
-
 *english* you are welcome , it's nothing
 
-*portugeuse* de nada
+*portuguese* de nada
 
 *spanish* con gusto ( in medellin you say *with pleasure*) | de nada 
 
