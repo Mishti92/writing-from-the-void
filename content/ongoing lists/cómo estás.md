@@ -3,16 +3,16 @@ tags:
   - usefulPhrases
 ---
 
-*english* 
+*english* how are you?
 
-*portugeuse* 
+*portugeuse* tudo bem? ( everything good)
 
-*spanish* 
+*spanish* cómo estás | que tal
 
-*turkish*
+*turkish* nasılsınız
 
-*urdu* 
+*urdu* aap kaise ho? 
 
-*hindi* 
+*hindi* aap kaise ho? 
 
-*kashmiri*
+*kashmiri* czi chuke' theek? ( are you okay?)

@@ -31,8 +31,8 @@ i intend to understand how to best use my devices in a way that adds to my life.
 | 22.02.25 | 4hr 54min   | *not sure why i have spent 3 hours on whatsapp*         |
 | 23.02.25 | 1hr 9min    |                                                         |
 | 24.02.25 | 59min       |                                                         |
-| 25.02.25 |             |                                                         |
-|          |             |                                                         |
+| 25.02.25 | 1hr 36min   |                                                         |
+| 26.02.25 |             |                                                         |
 |          |             |                                                         |
 
 [^1]: [[random movements has to die]]
