@@ -2,6 +2,10 @@
 tags:
   - seeds
 ---
+[Doechii - DENIAL IS A RIVER (Official Video)](https://www.youtube.com/watch?v=F0cdbR5ognY)
+
+[Elyanna - GANENI](https://www.youtube.com/watch?v=UMN1zILdLTs)
+
 [Batwanes Bik - Nour Kamar & Mazzika Orchestra | بتونس بيك - نور قمر ( Live )](https://www.youtube.com/watch?v=OEujGzD-xpw)
 transported me to a different world, the orchestra, the voice, the visuals. it heals something in my heart. the singer looks a lot like my childhood bestfriend.
 
@@ -12,4 +16,5 @@ best described with this comment:
 
 and this one:
 *This perfectly explains why Matthew was so forgiving of her dalliances with Domingo - Matthew understands all too well the irresistible allure of Latin men.*
+
 
