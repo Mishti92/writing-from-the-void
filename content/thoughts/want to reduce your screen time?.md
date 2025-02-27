@@ -7,7 +7,7 @@ step [[uno]], track your [[screen time]]
 
 go analog when in flow and build systems so you don't lose track of the practice. 
 
-Plant the seeds for a life that you want to live. Water it daily. And make sure you get enough sunlight in a day. As while the seeds are sprouting, put on[ Kizomba beats](https://open.spotify.com/playlist/37i9dQZF1DX1l6qs3gcM4U?si=f9bc392958d847b4) and let your hips sway while you are typing that note on your laptop. Or hit [move your spine](https://open.spotify.com/playlist/237JXEMYWRibmAWyCRiXQw?si=4d9fd6a4737f4f20) playlist to satisfy your movement cravings, as you experiment with your cooking skills.
+Plant the seeds for a life that you want to live. Water it daily. And make sure you get enough sunlight in a day. While the seeds are sprouting, put on[ Kizomba beats](https://open.spotify.com/playlist/37i9dQZF1DX1l6qs3gcM4U?si=f9bc392958d847b4) and let your hips sway while you are typing that note on your laptop. Or hit [move your spine](https://open.spotify.com/playlist/237JXEMYWRibmAWyCRiXQw?si=4d9fd6a4737f4f20) playlist to satisfy your movement cravings, as you experiment with your cooking skills.
 
 Remove the weeds that may grow along the way - be aware when you pick up the phone and open gmail app for the 10th time in the last hour or scroll through the instagram feed as a reaction to boredom. Protect your ability to be bored and letting your mind wander around aimlessly. Protect this part of you. Tend to the buds of your creativity with care. 
 
