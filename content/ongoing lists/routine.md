@@ -12,7 +12,6 @@ curiosities, intuition and deliberate action*
 - prioritize existing connections over finding new ones
 - *develop a routine to enable the practice*
 
-
 ##### **anatomy of a week:**
 
 spend most days at home, minimal external input 
@@ -33,6 +32,3 @@ for an hour or two:
 - follow the voice to say yes, follow the voice to say no
 - [midnight cravings](https://www.youtube.com/@ps_yourchica); record and share on youtube on the days you feel like. don't record or share on the days you don't feel like.
 - slowly build a practice to become stronger in your body. start showing up for the health of your future self.
--
-
-

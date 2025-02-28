@@ -42,12 +42,6 @@ your chica 💋
 
 _p.s. you have everything you need to start today._
 
-_p.p.s. i want to thank you if you bought the garage sale or any of my courses in the past few months. your support is enabling me to write, create and share from the void. i am able to take this pause, to create purely from heart because of your support. even if i try, i wont be able to convey the importance of this pause and what it is doing for me. so thank you so much! çok seviyorum!_
-
-_there are 2 spots left for garage sale._[​ _you can buy it here._​](https://randommovements.com/garage_sale/)
-
-_random movements will become the practice that holds the key to the real you. i can see the vision a bit more clear with each passing day. magic takes its dear time, so we do not rush it here. the joy is in the process. the joy is in the practice._
-
-_p.p.p.s 30 days is irrelevant. say yes long enough till it becomes a part of you. no matter the outcome, you are someone who shows up for 30 days because you believe in "you"._
+_p.p.s 30 days is irrelevant. say yes long enough till it becomes a part of you. no matter the outcome, you are someone who shows up for 30 days because you believe in "you"._
 
 ---
