@@ -11,7 +11,7 @@ can you go up ( the hill )?
 
 ##### *hortella*
 mint
-i want to add mint on top of *menemen* that i am making for breakfast these days. looked it up at the grocery store
+i wanted to add mint on top of *menemen* that i am making for breakfast these days. looked it up at the grocery store
 
 ##### *salsinha picada*
 chopped parsley

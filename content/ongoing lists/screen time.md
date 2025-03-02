@@ -33,9 +33,10 @@ i intend to understand how to best use my devices in a way that adds to my life.
 | 24.02.25 | 59min       |                                                                                                                                                                               |
 | 25.02.25 | 1hr 36min   |                                                                                                                                                                               |
 | 26.02.25 | 2hr 24min   | *i went out today. ended up using my phone a lot more, mostly for whatsapp to stay in touch with people, for uber and to record some thoughts while sitting next to the lake* |
-|          |             |                                                                                                                                                                               |
-|          |             |                                                                                                                                                                               |
-|          |             |                                                                                                                                                                               |
+| 27.02.25 | 1hr 5min    |                                                                                                                                                                               |
+| 28.02.25 | 2hr 52min   | spent 1 hour on notes app, taking notes while reflecting on the beac                                                                                                          |
+| 1.03.25  | 3hr 38min   | video call with 2 chicas for > hour each                                                                                                                                      |
+| 2.03.25  |             |                                                                                                                                                                               |
 
 [^1]: [[random movements has to die]]
 
