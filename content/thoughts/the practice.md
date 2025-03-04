@@ -1,2 +1,0 @@
-my practice as of today:
-write those mini-thought bites on sticky note as they arrive. Don't try to make sense of the words pouring out of you. All those words, all those ideas, mini-thought bites, they all deserve your love. We will sit with the parts of us that shared those thoughts a bit later. For now, jot it down on the paper. And later transfer the notes to your digital setup. As you are typing it out, if additional thoughts appear. Let it take charge and guide your writing.
