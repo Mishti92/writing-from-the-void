@@ -28,7 +28,11 @@ Drink one full glass of water. All of it.
 
 Make yourself a cup of chai.
 
-Do yourself a favour and delete whatever “short form content” app (instagram, TikTok, etc) you have on your phone for at least a few hours. If you really need it, you will figure out a way to install it again. _doom scrolling right now is a big no.  
+talk to yourself for an hour on a video
+
+say "i love you" to yourself x100, and give yourself a big hug. kiss your hands, your arms, your biceps, your shoulders. give yourself love the way you would love a significant other, a friend, a family member when they are sad 
+
+delete whatever “short form content” app (instagram, TikTok, etc) you have on your phone for at least a few hours. If you really need it, you will figure out a way to install it again. _doom scrolling right now is a big no.  
 _we are big fans of intentional scrolling here and sending memes to your chicas and having a laugh, but don’t expose yourself to multitude of new information at this point. It won’t do you any good. Any new information may trigger any old wounds or unresolved issues. You will start spiralling out of control.  
 _no bueno._
 
@@ -49,4 +53,6 @@ _( yes you should probably start making one right away)_ and let your body wigg
 
 No matter what your thoughts are telling you right now, remind yourself that you are loved. You are love and I fucking love you.
 
+
+p.s.
 your chica 💋
