@@ -1,6 +1,7 @@
 ---
 tags:
   - metrics
+  - experiments
 draft: false
 ---
 post deactivating all social media accounts and intentionally/mindfully using devices, one of the metrics I have been curious about is my screen time. I don't believe that it is possible to reduce it to less than an hour everyday because we do use our phones for various *important* use-cases. 
@@ -36,7 +37,8 @@ i intend to understand how to best use my devices in a way that adds to my life.
 | 27.02.25 | 1hr 5min    |                                                                                                                                                                               |
 | 28.02.25 | 2hr 52min   | spent 1 hour on notes app, taking notes while reflecting on the beac                                                                                                          |
 | 1.03.25  | 3hr 38min   | video call with 2 chicas for > hour each                                                                                                                                      |
-| 2.03.25  |             |                                                                                                                                                                               |
+
+i dont think it makes sense to track screen time anymore. i use phone consciously and intentionally to stay connected with family, to post on social media ( i wasnt planning to be away forever , i have things to do there ). but i will come up with [[rules for social media]] going forward. 
 
 [^1]: [[random movements has to die]]
 
