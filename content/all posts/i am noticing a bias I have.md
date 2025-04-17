@@ -3,8 +3,8 @@ tags:
   - seeds
 draft: false
 ---
+*last updated*:*24.12.24*
 
-*24.12.24*
 
 and I want to try and articulate it with as much honesty and care as possible.
 

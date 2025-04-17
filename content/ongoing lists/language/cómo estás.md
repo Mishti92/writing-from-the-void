@@ -2,6 +2,8 @@
 tags:
   - usefulPhrases
 ---
+*last updated*:*10.3.25*
+
 *english* how are you?
 
 *portuguese* tudo bem? ( everything good)

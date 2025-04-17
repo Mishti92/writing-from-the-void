@@ -1,3 +1,5 @@
+*last updated*:*10.3.25*
+
 write for 30 days. move for 30 days. make art for 30 days. work on your idea for 30 days. believe in your curiosity for 30 days. post on substack for 30 days. post on Instagram for 30 days. post on medium for 30 days. show up for 30 days. try something for 30 days, learn something for 30 days, fail at something for 30 days, allow yourself to be wrong for 30 days, allow yourself to do everything wrong for 30 days.
 
 _you hear me?_ you are not allowed to give up. you didn’t come all this way to pack up your curiosities and stop believing in your creativity, in your dreams, in your _mansha_, in your calling. all of it deserves to take space, and to be put out there. it's all coming from _you._

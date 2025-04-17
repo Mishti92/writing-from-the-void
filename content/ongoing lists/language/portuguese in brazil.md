@@ -3,6 +3,8 @@ draft: false
 tags:
   - travel
 ---
+*last updated*:*10.3.25*
+
 phrases i have picked up along the way
 ##### *voce pode subir* 
 

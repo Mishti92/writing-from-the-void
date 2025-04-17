@@ -3,9 +3,7 @@ tags:
   - seeds
 draft: false
 ---
-
-
-*24.01.25*
+*last updated*:*24.12.24*
 
 The way it has come together in the last few weeks has been magical. Although it feels like years and years in making.
 

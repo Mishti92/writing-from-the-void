@@ -3,6 +3,8 @@ tags:
   - seeds
 draft: false
 ---
+*last updated*:*1.3.25*
+
 #### **what i did:**
 
 linkedin  ( deactivated at the moment )

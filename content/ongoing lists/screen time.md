@@ -4,6 +4,8 @@ tags:
   - experiments
 draft: false
 ---
+*last updated*:*10.3.25*
+
 post deactivating all social media accounts and intentionally/mindfully using devices, one of the metrics I have been curious about is my screen time. I don't believe that it is possible to reduce it to less than an hour everyday because we do use our phones for various *important* use-cases. 
 
 *to reflect on: what you think is important vs what can you let go, so a new routine can be formed*

@@ -2,6 +2,8 @@
 tags:
   - usefulPhrases
 ---
+*last updated*:*10.3.25*
+
 *english* where is the bathroom
 
 *portuguese* onde fica o banheiro

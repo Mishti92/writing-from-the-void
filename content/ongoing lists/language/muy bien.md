@@ -2,6 +2,8 @@
 tags:
   - usefulPhrases
 ---
+*last updated*:*10.3.25*
+
 reply to [[cómo estás]]
 
 *english* I am good

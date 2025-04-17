@@ -3,6 +3,8 @@ tags:
   - seeds
 draft: false
 ---
+*last updated*:*10.3.25*
+
 step [[uno]], track your [[screen time]]
 
 go analog when in flow and build systems so you don't lose track of the practice. 

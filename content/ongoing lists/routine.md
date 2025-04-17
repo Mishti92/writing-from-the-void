@@ -3,6 +3,8 @@ tags:
   - seeds
 draft: false
 ---
+*last updated*:*10.3.25*
+
 *this page would evolve as i understand myself more and balance my 
 curiosities, intuition and deliberate action*
 
