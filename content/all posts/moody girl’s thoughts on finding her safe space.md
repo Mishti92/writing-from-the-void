@@ -3,11 +3,7 @@ tags:
   - loveletters
   - moodyChica
 ---
-*last updated*:*17.3.25*
-
-Moody girl’s thoughts on finding her safe space
-
-  
+*last updated*:*17.3.25*  
 
 When you genuinely start loving yourself, taking care of yourself - you take full responsibility for YOU.  
 
