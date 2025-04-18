@@ -20,6 +20,10 @@ Eat something. Even if you don’t think you are hungry. No really, get up and m
 
 Cry if you can.
 
+Rewatch your favourite show.
+
+Reach out to your chicas for support.
+
 Don’t text those who will make this state worse _(ex partners and close family members)._ Now is not the time.
 
 Journal. Start writing _‘I am sad’_ x100 if you need to.  
@@ -36,6 +40,8 @@ say "i love you" to yourself x100, and give yourself a big hug. kiss your hands,
 delete whatever “short form content” app (instagram, TikTok, etc) you have on your phone for at least a few hours. If you really need it, you will figure out a way to install it again. _doom scrolling right now is a big no.  
 _we are big fans of intentional scrolling here and sending memes to your chicas and having a laugh, but don’t expose yourself to multitude of new information at this point. It won’t do you any good. Any new information may trigger any old wounds or unresolved issues. You will start spiralling out of control.  
 _no bueno._
+
+Do you need to take some time for yourself? disconnect from outside world, including social media?
 
 Whatever problem was occupying your brain space before the mood shift, do not attempt to resolve it now. I repeat, do not attempt to find a solution. Now is not the time. Your decisions will be driven by impulse, rather than intuition.
 
