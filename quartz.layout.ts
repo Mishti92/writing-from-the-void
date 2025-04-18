@@ -8,8 +8,8 @@ export const sharedPageComponents: SharedLayout = {
   afterBody: [],
   footer: Component.Footer({
     links: {
-      Youtube: "https://www.youtube.com/@ps_yourchica",
-      "Random Movements": "https://randommovements.com/",
+      Youtube: "https://www.youtube.com/@shaesjournal",
+      "Main Site": "https://shaesjournal.com/",
     },
   }),
 }
