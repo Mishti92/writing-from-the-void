@@ -72,6 +72,7 @@ tags:
 - It's a beautiful time to witness Colombia’s **spiritual depth** and **communal rituals**.
 - Transportation and services may be limited, especially Friday–Sunday.
 
+---
 
 Today is **Saturday, April 19, 2025**, which is **Holy Saturday** (_Sábado Santo_)—the final day of **Semana Santa** (Holy Week) in Medellín and throughout Colombia.​
 
