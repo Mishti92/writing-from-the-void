@@ -5,6 +5,7 @@ tags:
   - teacher
   - zoukLegacy
   - connectionInDance
+  - ballroom
 ---
 *note by jaime: ⁠*
 
@@ -133,7 +134,8 @@ Printable Quote Sheet for Journal or Studio
 ---
 
 # Set up vertical timeline data
-timeline_data = [
+timeline_data = 
+
     (1980, "Jaime moves to Rio de Janeiro and explores Bolero, Samba, Tango"),
     (1986, "Founds Centro de Dança Jaime Arôxa in Rio"),
     (1989, "Zouk music from the Caribbean gains popularity"),
@@ -142,7 +144,8 @@ timeline_data = [
     (2000, "School produces stars: Renata, Adilio, Alex de Carvalho"),
     (2010, "Zouk goes global—festivals, workshops, and fusion styles emerge"),
     (2020, "New generation (Brenda, William, Gui) trace lineage to Jaime"),
-]
+    
+
 
 
 ---
