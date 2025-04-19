@@ -98,21 +98,28 @@ In a 2010s interview, he said:
 
 ---
 
-### 🕊️ **Teachings of Jaime
-
-Arôxa** –
+### 🕊️ **Teachings of Jaime Arôxa** –
 
 Printable Quote Sheet for Journal or Studio
 
 **1.** _“Dance is a sacred space where people meet, feel, and see each other.”_
+
 **2.** _“You don’t just teach movement—you teach presence.”_
+
 **3.** _“If it’s predictable, it’s boring.”_
+
 **4.** _“We don’t dance steps—we dance emotions.”_
+
 **5.** _“A good dance is like a ritual: it transforms both partners.”_
+
 **6.** _“The body doesn’t lie. Dance reveals the truth of how we relate to the world.”_
+
 **7.** _“Technique should serve expression, not the other way around.”_
+
 **8.** _“Connection in dance is about listening, not leading.”_
+
 **9.** _“Your embrace is your signature. Learn to speak without words.”_
+
 **10.** _“To dance is to offer someone a moment of your presence—fully, honestly, and with love.”_
 
 ---
