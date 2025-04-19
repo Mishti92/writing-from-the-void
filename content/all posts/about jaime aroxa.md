@@ -6,7 +6,15 @@ tags:
   - zoukLegacy
   - connectionInDance
 ---
-​Jaime Arôxa is a renowned Brazilian dancer, choreographer, and educator, celebrated for his significant contributions to ballroom and partner dances in Brazil. Born on April 15, 1961, in Recife, Pernambuco, he has been instrumental in shaping the Brazilian dance scene.​[Instagram+9Wikipédia, a enciclopédia livre+9alexdecarvalho.com.br+9](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)
+note by jaime: ⁠I am delighted with this research about my work.
+
+It is fully aligned with my philosophy. At some point, I can also mention all the choreographic works that brought ballroom dance to the stage, as well as my experience in cinema, theater, and TV. That’s it — just a few more factual details. This summary is fantastic.
+
+Regarding the Lambada: I brought Lambada to Rio, and at my school, my teachers combined all their knowledge from other dances, such as Bolero, and by reinventing the performance, Brazilian Zouk emerged.
+
+---
+​
+Jaime Arôxa is a renowned Brazilian dancer, choreographer, and educator, celebrated for his significant contributions to ballroom and partner dances in Brazil. Born on April 15, 1961, in Recife, Pernambuco, he has been instrumental in shaping the Brazilian dance scene.​[Instagram+9Wikipédia, a enciclopédia livre+9alexdecarvalho.com.br+9](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)
 
 Jaime Arôxa is often considered one of the **founding fathers of Brazilian Zouk**, and his **legacy in dance—especially partner dancing in Brazil—is monumental**. 
 
