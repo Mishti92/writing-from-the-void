@@ -74,7 +74,8 @@ tags:
 
 ---
 
-Today is **Saturday, April 19, 2025**, which is **Holy Saturday** (_Sábado Santo_)—the final day of **Semana Santa** (Holy Week) in Medellín and throughout Colombia.​
+
+its 1am. i am in medellin. it's raining outside. i was lying in a hammock 10 minutes before i started writing. today is saturday, april 19, 2025, which is holy saturday (s_ábado santo_)—the penultimate day of semana santo (holy week) in Medellín and throughout Colombia.​
 
 ---
 
