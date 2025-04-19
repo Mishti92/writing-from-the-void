@@ -19,17 +19,10 @@ Jaime was born in **Recife**, a city rich in culture and rhythm, and later moved
 
 In **1986**, he founded the **Centro de Dança Jaime Arôxa** in Rio, which became a pivotal hub for partner dance education in Brazil. His school is where many now-famous instructors and performers got their start.
 
-### Career and Contributions
-
-In 1986, Arôxa founded the Centro de Dança Jaime Arôxa in Rio de Janeiro, which has trained over 30,000 students and more than 100 dance instructors. His teaching methodology emphasizes emotional expression and deep connection between dance partners. ​[alexdecarvalho.com.br+1Zoukology+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
-
-Arôxa has choreographed for various mediums, including theater, television, and film. Notably, he worked on the opening of the telenovela "Kananga do Japão" in 1989/1990, which brought him national recognition. His film credits include "Policarpo Quaresma, Herói do Brasil" (1997) and "Gonzaga: From Father to Son" (2012). ​[jaimearoxaipanema.com.br+10alexdecarvalho.com.br+10danceplace.com+10](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)[Wikipédia, a enciclopédia livre](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)[IMDb+1Wikipédia, a enciclopédia livre+1](https://www.imdb.com/name/nm0037055/?utm_source=chatgpt.com)
-
-He has also been involved in choreographing for samba schools' "comissão de frente" (front commission) during Rio de Janeiro's Carnival, working with schools like Mangueira and Unidos de Vila Isabel. ​[alexdecarvalho.com.br+1Wikipédia, a enciclopédia livre+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
-
+---
 ### Dance Philosophy and Teaching
 
-Arôxa's approach to dance education focuses on simplifying movements to make dance accessible to everyone. He believes in creating a "ritual" between partners, emphasizing unpredictability and musicality to enhance the dance experience. 
+Arôxa's approach to dance education focuses on simplifying movements to make dance accessible to everyone. He believes in creating a "ritual" between partners, emphasizing ***unpredictability*** and ***musicality*** to enhance the dance experience. 
 ​[LinkedIn+12Instagram+12alexdecarvalho.com.br+12](https://www.instagram.com/forroxperience/reel/DCHhbpiOXAK/?utm_source=chatgpt.com)
 [Zoukology](https://zoukology.com/jaime-says-my-interview-experience-with-jaime-aroxa-dutch-zouk/?utm_source=chatgpt.com)
 
@@ -46,7 +39,9 @@ He has conducted numerous workshops and teacher training programs, such as the *
 - This led to what we now know as **Brazilian Zouk**: Lambada technique + Zouk music + deep body flow and connection.
     
 
-Jaime **coined foundational movements**, helped **standardize teaching methods**, and **innovated the aesthetic**. He was one of the first to **slow down the dance**, give it **emotional depth**, and introduce the idea of the **"ritual" of dance**—a moment of shared presence, vulnerability, and connection.
+Jaime **coined foundational movements**, helped **standardize teaching methods**, and **innovated the aesthetic**.
+
+He was one of the first to **slow down the dance**, give it **emotional depth**, and introduce the idea of the **"ritual" of dance**—a moment of shared presence, vulnerability, and connection.
 
 ---
 
@@ -62,7 +57,10 @@ His pedagogy was about **transforming people**, not just training dancers. He in
 
 #### 3. **"Ritual" Over Routine**
 
-He often said, _“If it’s predictable, it’s boring.”_ Jaime brought in the concept of **ritual, improvisation, and surprise**. He wanted dances to feel like **spontaneous encounters**—intimate, emotional, and alive.
+He often said,
+**_“If it’s predictable, it’s boring.”_**
+
+Jaime brought in the concept of **ritual, improvisation, and surprise**. He wanted dances to feel like **spontaneous encounters**—intimate, emotional, and alive.
 
 #### 4. **Inclusivity & Accessibility**
 
@@ -182,3 +180,15 @@ Jaime Arôxa’s school became a _breeding ground for talent_—many of today’
 ### 🌀 Why This Matters
 
 These dancers didn’t just pass through his school—they absorbed and transmitted **his philosophy of dance as connection, ritual, and healing**. Even as they developed their own styles, Jaime’s fingerprints are unmistakable in their teachings.
+
+---
+
+### Career and Contributions
+
+In 1986, Arôxa founded the Centro de Dança Jaime Arôxa in Rio de Janeiro, which has trained over 30,000 students and more than 100 dance instructors. His teaching methodology emphasizes emotional expression and deep connection between dance partners. ​[alexdecarvalho.com.br+1Zoukology+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
+
+Arôxa has choreographed for various mediums, including theater, television, and film. Notably, he worked on the opening of the telenovela "Kananga do Japão" in 1989/1990, which brought him national recognition. 
+
+His film credits include "Policarpo Quaresma, Herói do Brasil" (1997) and "Gonzaga: From Father to Son" (2012). ​[jaimearoxaipanema.com.br+10alexdecarvalho.com.br+10danceplace.com+10](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)[Wikipédia, a enciclopédia livre](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)[IMDb+1Wikipédia, a enciclopédia livre+1](https://www.imdb.com/name/nm0037055/?utm_source=chatgpt.com)
+
+He has also been involved in choreographing for samba schools' "comissão de frente" (front commission) during Rio de Janeiro's Carnival, working with schools like Mangueira and Unidos de Vila Isabel. ​[alexdecarvalho.com.br+1Wikipédia, a enciclopédia livre+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
