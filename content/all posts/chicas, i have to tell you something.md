@@ -9,7 +9,8 @@ its 1am. i am in medellin. it's raining outside. i was lying in a hammock 10 min
 
 [​according to this article here ( in spanish )_,_​](https://www.ciw.edu.mx/el-significado-del-sabado-santo-o-sabado-de-gloria/)
 
-> [!During this day, people reflect on the passion, death, and resurrection of Jesus. Churches do not celebrate Mass, nor do they ring their bells, and no sacraments are administered except for the anointing of the sick and the confession of sins. Many believers fast to honor Jesus' death and prepare to commemorate his resurrection. Previously, it was customary to throw water over oneself, as some people believed it purified their souls and thus atoned for their sins. However, thanks to sanctions implemented by various governments to prevent water waste and misuse during Holy Saturday, this tradition has ceased to occur, and instead, many believers go swimming with their families, either at beaches or in spas.]
+> [!]
+> *During this day, people reflect on the passion, death, and resurrection of Jesus. Churches do not celebrate Mass, nor do they ring their bells, and no sacraments are administered except for the anointing of the sick and the confession of sins. Many believers fast to honor Jesus' death and prepare to commemorate his resurrection. Previously, it was customary to throw water over oneself, as some people believed it purified their souls and thus atoned for their sins. However, thanks to sanctions implemented by various governments to prevent water waste and misuse during Holy Saturday, this tradition has ceased to occur, and instead, many believers go swimming with their families, either at beaches or in spas.*
 
 the timing of semana Santa and my arrival in **medellín** - a city i have come to love as my own, a city that has started to feel more and more like home. so much that i am called back here every 3 months, for the last 3 times now - is not lost on me.
 
