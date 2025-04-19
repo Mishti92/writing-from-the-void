@@ -3,6 +3,8 @@ tags:
   - moodyChica
   - notEnough
 ---
+*last updated*:*15.3.25*
+
 *2021:*
 
 she thought she should be happy by now, 
@@ -96,32 +98,3 @@ and become best friends with her body.
 she will one day learn to love herself. 
 she will become her favorite person. 
 and together, they will find a way out of this existential crisis.
-
-
-
-
-
-
-
-
-
-
-i got everything i wanted, 
-and i burned it to the ground.
-
-
-
-
-
-step 1:
-move to brazil
-dont socialize
-dont interact with anyone
-dont make friends
-
-break up. congrats, you are now single.
-
-no one would miss you. no one would think you are not responding to your texts
-
-
-
