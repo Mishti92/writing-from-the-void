@@ -189,6 +189,8 @@ In 1986, Arôxa founded the Centro de Dança Jaime Arôxa in Rio de Janeiro, whi
 
 Arôxa has choreographed for various mediums, including theater, television, and film. Notably, he worked on the opening of the telenovela "Kananga do Japão" in 1989/1990, which brought him national recognition. 
 
-His film credits include "Policarpo Quaresma, Herói do Brasil" (1997) and "Gonzaga: From Father to Son" (2012). ​[jaimearoxaipanema.com.br+10alexdecarvalho.com.br+10danceplace.com+10](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)[Wikipédia, a enciclopédia livre](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)[IMDb+1Wikipédia, a enciclopédia livre+1](https://www.imdb.com/name/nm0037055/?utm_source=chatgpt.com)
+His film credits include "Policarpo Quaresma, Herói do Brasil" (1997) and "Gonzaga: From Father to Son" (2012). ​[jaimearoxaipanema.com.br+10alexdecarvalho.com.br+10danceplace.com+10](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
+[Wikipédia, a enciclopédia livre](https://pt.wikipedia.org/wiki/Jaime_Ar%C3%B4xa?utm_source=chatgpt.com)
+[IMDb+1Wikipédia, a enciclopédia livre+1](https://www.imdb.com/name/nm0037055/?utm_source=chatgpt.com)
 
 He has also been involved in choreographing for samba schools' "comissão de frente" (front commission) during Rio de Janeiro's Carnival, working with schools like Mangueira and Unidos de Vila Isabel. ​[alexdecarvalho.com.br+1Wikipédia, a enciclopédia livre+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
