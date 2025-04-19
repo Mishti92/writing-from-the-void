@@ -6,11 +6,13 @@ tags:
   - zoukLegacy
   - connectionInDance
 ---
-note by jaime: ⁠I am delighted with this research about my work.
+*note by jaime: ⁠*
 
-It is fully aligned with my philosophy. At some point, I can also mention all the choreographic works that brought ballroom dance to the stage, as well as my experience in cinema, theater, and TV. That’s it — just a few more factual details. This summary is fantastic.
+*I am delighted with this research about my work.*
 
-Regarding the Lambada: I brought Lambada to Rio, and at my school, my teachers combined all their knowledge from other dances, such as Bolero, and by reinventing the performance, Brazilian Zouk emerged.
+*It is fully aligned with my philosophy. At some point, I can also mention all the choreographic works that brought ballroom dance to the stage, as well as my experience in cinema, theater, and TV. That’s it — just a few more factual details. This summary is fantastic.*
+
+*Regarding the Lambada: I brought Lambada to Rio, and at my school, my teachers combined all their knowledge from other dances, such as Bolero, and by reinventing the performance, Brazilian Zouk emerged.*
 
 ---
 ​
