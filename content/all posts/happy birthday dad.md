@@ -89,11 +89,12 @@ i think you and misbah need to have a chat as well. you both need some healing. 
 
 okay i will accept to be your son. would you allow me to love you unconditionally, the way you loved aba? would you share your heart's desire, your mansha with me. with your mansha. i forgive you for everything and i am so grateful for everything. would your tell your childhood stories to me, to your daughters, to your son? would you be open to sharing your heart, a bit more softly with mom? 
 
-i am not sure when is kashmir going to call me back. it seems like maybe next year, but who knows. i would know when my ancestors, my land, my people, my roots call me back. i will know when the time is right. 
+i am not sure when is kashmir going to call me back. it seems like maybe next year, but who knows. i would know when my dad, my mom, my ancestors, my land, my people, my roots call me back. i will know when the time is right. 
 
 until then, will you take care of yourself for me. would you take care of mom for me? 
 
-i love you dad.
+i love you dad,
+your mansha 
 
 
 
