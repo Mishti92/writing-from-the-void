@@ -1,12 +1,12 @@
 ---
 tags:
   - jaimeAroxa
-  - zouk
   - teacher
   - zoukLegacy
   - connectionInDance
-  - ballroom
   - shiva
+  - surrender
+  - flow
 ---
 [2025-04-21, 2:46:41 PM] 
 Jaime Aroxa: 
