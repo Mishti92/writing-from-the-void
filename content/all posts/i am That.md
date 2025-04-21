@@ -2,7 +2,7 @@
 tags:
   - practice
 ---
-for the moments you feel small. disconnected. or like you forgot who you are.
+for the moments you feel small. disconnected. or you forgot who you are.
 
 ---
 
@@ -25,7 +25,7 @@ _a 7-minute practice to come back to your body, to the essence of who you are
 
 ---
 
-### 🔥 **Step 1: Set the space (1 minute)**
+### 🔥 **Step 1: set the space 
 
 Light a candle.  
 Place your hand on your heart.  
@@ -40,7 +40,7 @@ Let your awareness drop out of your head and into your chest, your belly, your b
 
 ---
 
-### 🌬️ **Step 2: Breathe into Infinity (2 minutes)**
+### 🌬️ **Step 2: breathe into infinity 
 
 Inhale gently through the nose, as if receiving life itself.  
 Exhale slowly through the mouth, like a sigh of relief.
@@ -67,7 +67,7 @@ Let this become a gentle rhythm. Add your own intentions as they arise.
 
 ---
 
-### 👁️‍🗨️ **Step 3: Feel the Truth (2 minutes)**
+### 👁️‍🗨️ **Step 3: feel the truth 
 
 Now, place one hand on your belly, one on your chest.
 
@@ -86,9 +86,9 @@ You’ve always been whole.
 
 ---
 
-### ✍🏼 **Step 4: Journal Prompt (2 minutes)**
+### ✍🏼 **Step 4: express the truth 
 
-(if you're in the mood to write)
+(if you're in the mood to dance, write, create, move your body)
 
 **Prompt:**
 
@@ -102,7 +102,7 @@ Let it spill out raw. No editing.
 
 ---
 
-### 🌸 **Step 5: Close with a Blessing (30 seconds)**
+### 🌸 **Step 5: close with gratitude
 
 Bring your palms together in front of your heart.  
 Bow your head gently to your own inner Self.
@@ -115,4 +115,5 @@ Whisper:
 > Because I _am_ That.”
 
 Blow out the candle. Feel the silence after.  
+
 That silence is _you_.
