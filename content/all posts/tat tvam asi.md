@@ -2,7 +2,7 @@
 tags:
   - kashmirShaivism
 ---
-[[i am That]]
+[[i am That - practice]]
 
 at its core, **“You are That”** is the heart of all non-dual teachings, including Kashmir Shaivism, Advaita Vedanta, and even whispered through mystical poetry across time.
 
@@ -57,10 +57,8 @@ You’re not a fragment—you’re the whole, appearing as this unique expressio
 
 ---
 
-## 🧘🏽‍♀️ So what do I _do_ with that?
+## 🧘🏽‍♀️ you just need to start _remembering_
 
-Honestly? You don’t need to _do_.  
-You just start to _remember_.  
 Peel back the layers, the conditioning, the fear—and start living from that place inside that already knows.
 
 When you taste it, even for a second—during breath, dance, stillness, heartbreak—you’ll know.

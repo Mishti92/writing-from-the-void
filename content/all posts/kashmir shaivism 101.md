@@ -270,7 +270,7 @@ To return, not run.
 
 Through **breath**, **sensation**, **awareness**, **mantra**, **touch**, and **pure presence**, you slowly peel back the veils until you can look in the mirror and say with full-body knowing:
 
-> “[[i am That]].”
+> “[[i am That - practice]].”
 
 ---
 
