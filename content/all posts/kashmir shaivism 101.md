@@ -32,7 +32,7 @@ It says:
 
 At its heart, Kashmir Shaivism teaches that:
 
-> **"everything is dhiva. you are that."
+> **"everything is shiva. you are that."
 > **[[tat tvam asi]]** (तत् त्वम् असि)**
 
 
@@ -49,19 +49,134 @@ This tradition invites you to **fully engage with life**—with your body, your 
 - Paramashiva is **not separate** from the world. The world is **His own dance**, a **creative expression (Spanda)**.
     
 
-### 2. **Spanda: The Divine Pulsation**
+### 2. **Spanda** (Sanskrit: स्पन्द)
 
-- Everything is alive with **spanda**, the subtle **throb of consciousness**.
-    
-- From breath to emotion to thought, all movement is part of this sacred vibration.
-    
+Means: **vibration**, **pulsation**, **quiver**, or **throb**  
 
-### 3. **Shakti: The Power of Awareness**
+But not just any vibration—it’s the **first stir**, the primal movement that comes before creation. It’s not physical. It’s **existence becoming aware of itself.**
+
+Think of it like this:  
+Before any thought, before form, before time—there’s a pulse.  
+Not of a heart, but of **Being itself**.
+
+It’s like the universe taking a breath.
+
+---
+
+#### 🔹 “Everything is alive with spanda…”
+
+Kashmir Shaivism says:
+
+> Consciousness is not static. It moves. It dances. It _feels_.
+
+This movement—this trembling aliveness—is what **creates** the world.  
+It’s how **Shiva** (pure awareness) becomes **Shakti** (creative expression).  
+That feeling when you suddenly realize something,  
+the flutter before a kiss,  
+the pull to create,  
+the shift when you’re fully present—that’s _spanda._
+
+So when we say:
+
+> **“Everything is alive with spanda,”**  
+> we mean the **entire universe is pulsing** with consciousness.  
+> Every leaf, every sound, every silence, every moment is **not dead matter**, but **alive with intelligence.**
+
+---
+
+Your emotions, your desires, your breath, your body’s movements—all are **expressions of that sacred vibration.**  
+You’re not separate from it. You _are_ it.
+You feel it in that tiny moment before a breath,  
+in the shiver behind a song lyric that hits too close,  
+in the way you move when no one’s watching.
+
+Spanda is life saying,
+
+> “I am here. I am You.”
+
+### **Shiva and Shakti: The Power of Awareness**
 
 - **Shiva and Shakti** are not two. Shiva is **pure awareness**, and Shakti is **its power to manifest**.
+
+#### **Shiva** is **pure awareness**
+
+- Still. Boundless. Silent.
     
+- The open sky behind all experience.
+    
+- He is the **witness**, the formless presence that holds everything.
+    
+- He doesn’t _do_—he _is_. Pure being. Pure consciousness.
+    
+
+#### **Shakti** is **the power of awareness to express itself**
+
+- She is movement, creation, vibration, thought, emotion, body, energy.
+    
+- She is **life happening**.
+    
+- She is the throb of sensation in your chest, the cry, the orgasm, the wind, the wave.
+    
+- She is the **manifest world**—but also the power that brings it into being.
+- 
 - Everything you experience is **Shakti**—a play of energy, form, and feeling.
     
+
+#### 🌺 But here’s the key: **they are never separate.**
+
+**Shiva without Shakti is pure stillness, unmoving.**  
+**Shakti without Shiva is wild energy with no center.**
+
+They complete each other.  
+But not like opposites.  
+More like **essence and expression**.  
+Like **fire and its heat**.  
+**Ocean and its waves**.  
+**Word and meaning.**  
+**Body and breath.**
+
+#### In Kashmir Shaivism, this is the core revelation:
+
+> **The Divine is not just up there or far away.**  
+> The Divine is **within**—not just as the watcher, but as the **one watching, the one dancing, and the dance itself.**
+
+When you close your eyes in deep meditation,  
+and feel the still presence—that’s **Shiva**.  
+When you cry from heartbreak or ecstasy,  
+and your chest burns and your breath trembles—that’s **Shakti**.
+
+**Both are sacred. Both are you.**
+
+#### 🧬 In You:
+
+You have a Shiva side—your stillness, your wisdom, your grounded knowing.  
+And you have a Shakti side—your movement, your intuition, your fire, your feeling.
+
+To awaken fully is to **reunite** them.  
+To let the **awareness of Shiva** hold the **aliveness of Shakti** in your body, your heart, your life.
+
+And then everything becomes practice:
+
+- dancing,
+    
+- crying,
+    
+- journaling,
+    
+- making love,
+    
+- saying yes,
+    
+- saying no,
+    
+- drinking chai with reverence.
+    
+
+All of it becomes a remembering:
+
+> **I am Shiva, aware of all.  
+> I am Shakti, expressing all.  
+> [[I am the One, dancing as Two]].**
 
 ### 4. **Recognition (Pratyabhijñā)**
 
@@ -124,49 +239,13 @@ All of life becomes sacred practice.
 
 ---
 
-## 🧡 Why It’s So Resonant Today
-
-In a world of burnout, numbness, and disconnection, Kashmir Shaivism offers a way back to your **body**, your **senses**, your **power**, and your **Self**. It reminds you that:
+a way back to your **body**, your **senses**, your **power**, and your **Self**.
+a reminder:
 
 > You don’t need to escape the world to find God.  
 > You are God.  
 > The world is God.  
 > And love is the bridge.
-
----
-
-
-### _a remembering, not a learning_
-
-There’s a whisper that lives inside you.  
-A pulse.  
-Soft, ancient, alive.  
-Maybe you’ve felt it in stillness.  
-In dance.  
-In love.  
-In heartbreak.  
-It doesn’t ask you to escape the world.  
-It asks you to feel everything fully—and _then_ see through it.  
-That whisper?  
-That’s what Kashmir Shaivism is trying to show you.
-
----
-
-## 
----
-
-## 🔥 The Pulse: Spanda
-
-At the heart of this path is a word: **Spanda**.  
-It means _the subtle throb of life_—the vibration before the world even becomes a world.
-
-You feel it in that tiny moment before a breath,  
-in the shiver behind a song lyric that hits too close,  
-in the way you move when no one’s watching.
-
-Spanda is life saying,
-
-> “I am here. I am You.”
 
 ---
 
@@ -191,34 +270,31 @@ To return, not run.
 
 Through **breath**, **sensation**, **awareness**, **mantra**, **touch**, and **pure presence**, you slowly peel back the veils until you can look in the mirror and say with full-body knowing:
 
-> “I am That.”
+> “[[i am That]].”
 
 ---
 
 ## 📚 The Sacred Texts (aka love letters from the ancestors)
 
-- **Shiva Sutras** – The core revelations of awakening, gifted in a dream to the sage Vasugupta.
+- **shiva sutras** – The core revelations of awakening, gifted in a dream to the sage Vasugupta.
     
-- **Spanda Karikas** – The poetry of the pulse.
+- **spanda karikas** – The poetry of the pulse.
     
-- **Pratyabhijñāhṛdayam** – A gem from Kṣemarāja that says: You don’t need to climb a mountain. You just need to remember what’s already beating inside you.
+- **pratyabhijñāhṛdayam** – A gem from Kṣemarāja that says: You don’t need to climb a mountain. You just need to remember what’s already beating inside you.
     
-- **Tantrāloka** – A firestorm of wisdom by Abhinavagupta. Tantra, yoga, devotion, non-duality—all woven into one vast map of liberation.
+- **tantrāloka** – A firestorm of wisdom by Abhinavagupta. Tantra, yoga, devotion, non-duality—all woven into one vast map of liberation.
     
 
 ---
 
-## 🕊️ This Path is Different
+## 🕊️ this isn’t about transcending your body
 
-This isn’t about transcending your body.  
 It’s about _descending into it._  
-Becoming so deeply human that you circle back to God.
+becoming so deeply human that you circle back to the universe.
 
-The sacred isn’t elsewhere.  
-It’s in the ache in your chest.  
-The warmth of chai in your hands.  
-The way your breath catches when you dance.
-
-Kashmir Shaivism says:
+the sacred isn’t elsewhere.  
+it’s in the ache in your chest.  
+the warmth of chai in your hands.  
+the way your breath catches when you dance.
 
 > “Stop running. You’re already home.”

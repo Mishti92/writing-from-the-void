@@ -1,6 +1,7 @@
 ---
 tags:
   - practice
+  - kashmirShaivism
 ---
 for the moments you feel small. disconnected. or you forgot who you are.
 
