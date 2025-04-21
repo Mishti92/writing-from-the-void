@@ -208,3 +208,10 @@ His film credits include "Policarpo Quaresma, Herói do Brasil" (1997) and "Gonz
 [IMDb+1Wikipédia, a enciclopédia livre+1](https://www.imdb.com/name/nm0037055/?utm_source=chatgpt.com)
 
 He has also been involved in choreographing for samba schools' "comissão de frente" (front commission) during Rio de Janeiro's Carnival, working with schools like Mangueira and Unidos de Vila Isabel. ​[alexdecarvalho.com.br+1Wikipédia, a enciclopédia livre+1](https://alexdecarvalho.com.br/brazilianzoukmac/instructors-for-mac/jaime-aroxa-and-kiri-chapman/?utm_source=chatgpt.com)
+
+
+---
+
+### Words by Jaime:
+
+[[by surrendering to dance, you discover that truth is not fixed]]
