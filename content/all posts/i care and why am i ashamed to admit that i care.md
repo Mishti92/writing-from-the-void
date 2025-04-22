@@ -3,6 +3,7 @@ tags:
   - loveliveshere
   - collectiveCare
   - laCasaDeSaheliya
+  - kashmirShaivism
 ---
 _writing this at 11:26pm,  
 apr 21, 2025
