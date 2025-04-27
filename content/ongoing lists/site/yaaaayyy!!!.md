@@ -1,6 +1,6 @@
 consider yourself “segmented.”
 
-it’s an honor to have your attention.
+thank you for your attention.
 
 in a world of mass communication shouting to be heard, i prefer a more personal approach that’s slower and calmer.
 
@@ -8,5 +8,7 @@ it’s a small thing, i know, but the “closeness” changes everything, don’
 
 (Check your inbox…)
 
+
 love,
+
 your chica
