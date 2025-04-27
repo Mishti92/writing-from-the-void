@@ -1,0 +1,23 @@
+---
+tags:
+  - interesante
+---
+IT JUST MAKES SENSE
+
+i find salsa. I go to bachata. I go to bachata in medellin. I love medellin. I leave medellin. I go to Peru. I become a bit of a banjaran. Something changes. I start to heal. I come back to medellin. I look for apartment . I find Mayan. Mayan teaches zouk. Mayan teaches me zouk. Mayan tells me about Brazil. I go to Argentina instead. I don’t like Buenos Aires. I meet a Chico who tells me about Floripa. Chico doesn’t work out. I go to Floripa. I isolate . I only book zouk hour at the end of isolation of 2 months. I go to first class of zouk hour. I meet Jaime. Jaime is one of the founder of zouk. I ask him what does it take to create a new dance form. Holy shit. Where did that come from ?  We start talking. I tell him I want to take his teachings and do something with it, I don’t know what yet. We align on many things. We decide maybe I come back to Brazil to teach yoga at his studio when he does his dance professor training. I tell him I don’t teach normal yoga. I show him my video. He ingact prefers what I do. He says yes do that. I like it. Aligned. My teacher has arrived. His name is Jaime Aroxa.
+
+I plan to go back to Toronto. But I text Mayan one day and I ask her if she has a room. She says yes. I know in that instant I have to come back to medellin. I have to meet baby Mayan. I have to be a sister to Mayan now. So I come back. I meet chico. Many chicos. But not those ones. The interesting one. he also dances zouk. he also gives lap dances. he also owns a record label where he helps talented local artists with resources and makes them big. He’s amazing. And HE CAN DANCE . the night i texted dad, initiating a reconection. I had spent 5 hojrs outside of mayans apartment talking to him. Abojt everything and anything. he was receibing my change of topic with open heart. Flowing wjere i was leading him to. Then he took lead and was letting me flow. Like the dance. It changed thjngs. he showed me what a healed man can look like. and i was the most calm i have ever been in his presence. Next day, j texted dad. I wrote a letter to dad. Happy birthday dad.
+
+The encounter with le dancer chico led me to reconnect with Jaime and ask him about why he dances. What is his philosophy around dance. 
+
+in the meantime: through a random exploration that night on internet - I found the practice of my ancestors. Insaneeee
+
+Kashmir shaivism. Led me to the work and poems of lal ded. From Kashmir. From my land. My people. you know, both of my sisters were born in lal ded hospital. I was born in Delhi. So I return myself back to lal ded, as I go deep in her teachings. She’s a poet , a mystic , and she wrote poems in Kashmiri- my language. Vakhs. That’s one of the first works known that are written in that language. Form 14th century. Isn’t that insane. She wasn’t some spritual guru, like Buddha or any of the yoga gurus. Well pretty sure it was still a very much patriarchal society where women weren’t given much importance. Anyway. She suffered a lot. And she started wandering around. That’s the story of Habba Khatoon, as well. I visited that mountain in 2023 Sept right after the panic attack. And I cried so much when I was there. They both were these wanderers. Much like me, wandering around the world after losing the one thing she loved the most in her life. So I relate to habba khatoon. And a few days back, I learned that lal ded is also in my blood. and her practices can show me a way to bring her teaching, to show her practice of love, the practice of my people, to the world. My people are kind. They are lost, but they will still give when they have nothing to give. 
+
+I feel both lal ded and habba khatoon some days.  But instead of wandering around the mountain, or singing in the middle of the road and in temples, I am scamming the internet 😂
+
+So Kashmir shaivism is a tantric tradition. but when lal ded embodied it, she bought her shakti to the rigidity of the existing rituals. She went past religion, caste, bridging the worlds. I want to learn from her. And I feel so grateful that she has written these poems. for the future generation to take what she written and learn from it. I know, she’s calling to me. everytime I read what she written, I feel she’s speaking to me directly. My teacher has arrived. Her name is lal ded.  
+
+I don’t know the link yet but the ideas are forming. the practice is coming to me. and I think back to what caused this chain of magical events. One after the other. 
+
+tantra has to be reclaimed. the embodiment of zouk / dance / dance as a connection needs to be reclaimed. Chicas need to heal. Chicos need to heal. relationships need to heal. it makes sense.
