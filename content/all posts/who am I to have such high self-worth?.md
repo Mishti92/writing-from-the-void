@@ -43,7 +43,7 @@ but maybe chico is right. who am i to believe in myself? to have this amount of 
 
 _por ejemplo,_
 
-2 years back, 2023 april -> i was a tech employee, senior product manager for a cannabis startup. no, we didnt make cannabis inhouse, but created systems to streamline the data captured throughout the lifecycle of growing, manufacturing, selling cannabis.
+2 years back, 2023 april -> i was a tech employee, senior product manager for a startup. 
 
 i was on my way to montreal, to spend 2 months there, while looking for an apartment to finally take that step - get into a mortgage and live a happy every after, or some version of it. after a month or so of search and so close to putting an offer on a cute apartment in my favorite neighbourhood of montreal, i had a realization that mortgage freaked me out and something told me to not put an offer on this very cute place i had already given my heart to.
 
