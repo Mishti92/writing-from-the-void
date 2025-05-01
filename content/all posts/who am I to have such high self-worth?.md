@@ -117,14 +117,6 @@ i have been writing for a while. hmmm... i need to go for a walk, clear my mind 
 
 to be continued...
 
-_8:05 pm, en mi habitacion_
-
-have you ever massaged the masseter muscle, the side of your face. ufff... the stretch and release feels so good. try it.
-
-![Masseter Muscle Massage for Tension Headaches and Jaw Release](https://hips.hearstapps.com/hmg-prod/images/masseter-release-1541535395.png?crop=1xw:1xh;center,top&resize=980:*)
-
-i am going to complete the rest of the essay tomorrow. i still have to make the point, hehe..
-
 love,
 
 your chica 💋
@@ -139,10 +131,20 @@ _it will contain bits and pieces of who I want to be. intuitive movement, love a
 
 _here's the catch, i don't know yet what value i will be creating. i know i will be offering multiple tiers, depending on how much energy investment it asks of me so I can ensure it stays sustainable._
 
-_but i am not goint to wait until i know to start the work. so, here's what I am doing._
+_but i am not going to wait until i know to start the work. so, here's what I am doing._
 
 _for 24 may launch, i will be opening the door to 50 chicas. at 99$ a year. I close the doors after 50. spend 3 months building something toegther and reevaluate if it still should be 99 or not. or if there need to be multiple tiers._
 
-_if you want me to save a spot for you, in one of the 50._ [​_raise your hand HERE_​](https://shaesjournal.com/yaaay/)_._
+_if you want me to save a spot for you, in one of the 50, add your email [here](https://shaesjournal.com/la-casa-de-saheliya-waitlist/). 
 
 _i love you_
+
+*p.p.s.* 
+
+*8:05 pm, en mi habitacion*
+
+*have you ever massaged the masseter muscle, the side of your face. ufff... the stretch and release feels so good. try it.*
+
+*![Masseter Muscle Massage for Tension Headaches and Jaw Release](https://hips.hearstapps.com/hmg-prod/images/masseter-release-1541535395.png?crop=1xw:1xh;center,top&resize=980:*)*
+
+*i am going to complete the rest of the essay tomorrow. i still have to make the point, hehe..*
