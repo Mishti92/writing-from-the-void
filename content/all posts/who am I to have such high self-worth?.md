@@ -5,8 +5,9 @@ tags:
   - emailsSent
 ---
 _la parceria cafe, medellin 12:36pm
-the chico at counter said bom dia. 
-is he from brazil, does he think I am from brazil? i did ask "fala ingles?" last time i was here, not intentionally but because my brain is adjusting portuguese -> spanish... well..._
+
+*the chico at counter said bom dia.* 
+*is he from brazil, does he think I am from brazil? i did ask "fala ingles?" last time i was here, not intentionally but because my brain is adjusting portuguese -> spanish... well...*
 
 _i think i am going crazy._ or that i am on the verge of something big. the word big is subjective. oh, why do I have to contradict everything i say. we haven't even begun yet.
 
