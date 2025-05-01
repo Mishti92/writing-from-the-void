@@ -143,8 +143,10 @@ _i love you_
 
 *8:05 pm, en mi habitacion*
 
-*have you ever massaged the masseter muscle, the side of your face. ufff... the stretch and release feels so good. try it.*
+_i went for a walk and had some_ [​_thoughts_​](https://shaesjournal.xyz/all-posts/me-encanta-me-encanta-me-encanta)_._
 
-*![Masseter Muscle Massage for Tension Headaches and Jaw Release](https://hips.hearstapps.com/hmg-prod/images/masseter-release-1541535395.png?crop=1xw:1xh;center,top&resize=980:*)*
+_also, have you ever massaged the masseter muscle, the side of your face. ufff... the stretch and release feels so good. try it._
 
-*i am going to complete the rest of the essay tomorrow. i still have to make the point, hehe..*
+_i am going to complete the rest of the essay tomorrow. i still have to make the point, hehe.._
+
+*![Masseter Muscle Massage for Tension Headaches and Jaw Release](https://hips.hearstapps.com/hmg-prod/images/masseter-release-1541535395.png?crop=1xw:1xh;center,top&resize=980:*)
