@@ -5,7 +5,7 @@ tags:
 shivani is from India.  
 adina is from Pakistan.  
 aalisha is from Nepal.  
-ae met in Medellín, Colombia — last year, on the week of my 32nd birthday.
+we met in Medellín, Colombia — last year, on the week of my 32nd birthday.
 
 three chicas in their 30s, each navigating her Saturn return,  
 drawn from lands carved apart by history, partitioned by pain —  
