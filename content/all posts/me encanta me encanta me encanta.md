@@ -28,7 +28,7 @@ I don’t know exactly
 
   
 
-So while the chico‘s on the street, look at me and call me, Mamacita, the Chicas in the thrift store said me encanta me encanta me encanta. three times. emphasizing that she liked my look when I asked them if they also buy stuff because I would like to trade or give back the things that I do not wear anymore I think we should all do that more often.
+So while the chico‘s on the street, look at me and call me, Mamacita, the Chicas in the thrift store said me encanta me encanta me encanta. three times. emphasizing that s liked my look when I asked them if they also buy stuff because I would like to trade or give back the things that I do not wear anymore I think we should all do that more often.
 
 i bought a cute demin shirt from the thrift store. and something that looked like skirt but goes best as a window decor.
 ![[HEIC to PNG Conversion 1.png]]

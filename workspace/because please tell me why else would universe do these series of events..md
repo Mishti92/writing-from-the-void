@@ -19,5 +19,3 @@ I feel both lal ded and habba khatoon some days.  But instead of wandering arou
 So Kashmir shaivism is a tantric tradition. but when lal ded embodied it, she bought her shakti to the rigidity of the existing rituals. She went past religion, caste, bridging the worlds. I want to learn from her. And I feel so grateful that she has written these poems. for the future generation to take what she written and learn from it. I know, she’s calling to me. everytime I read what she written, I feel she’s speaking to me directly. My teacher has arrived. Her name is lal ded.  
 
 I don’t know the link yet but the ideas are forming. the practice is coming to me. and I think back to what caused this chain of magical events. One after the other. 
-
-tantra has to be reclaimed. the embodiment of zouk / dance / dance as a connection needs to be reclaimed. Chicas need to heal. Chicos need to heal. relationships need to heal. it makes sense.
