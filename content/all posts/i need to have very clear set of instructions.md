@@ -13,10 +13,6 @@ tags:
 
 
 
-###### ChatGPT said:
-
-This is a powerful self-observation — and it reveals a **blend of psychological effects** that are entirely human and highly workable once understood.
-
 Let’s unpack what’s happening beneath the surface:
 
 ---
