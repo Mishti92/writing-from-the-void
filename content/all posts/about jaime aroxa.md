@@ -6,7 +6,7 @@ tags:
   - zoukLegacy
   - connectionInDance
   - ballroom
-  - shiva
+  - aiGenerated
 ---
 *note by jaime: ⁠*
 

@@ -2,11 +2,10 @@
 tags:
   - jaimeAroxa
   - teacher
-  - zoukLegacy
   - connectionInDance
-  - shiva
   - surrender
   - flow
+  - zoukLegacy
 ---
 
 "ao se entregar à dança, você descobre que a verdade não é fixa — ela é fluida, viva, capaz de atravessar as camadas do seu corpo e revelar sensações adormecidas que alimentam a alma. Nesse mergulho, você se enriquece, amadurece e se conecta profundamente com a essência do ser. Corpo e espírito se entrelaçam em uma felicidade extrema, provocando ondas de prazer que expandem o amor que somos capazes de sentir, compartilhar e acolher"

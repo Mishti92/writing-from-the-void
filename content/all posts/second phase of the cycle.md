@@ -6,6 +6,7 @@ tags:
   - zooni
   - spring
   - follicular
+  - aiGenerated
 ---
 
 

@@ -3,6 +3,7 @@ tags:
   - travel
   - colombia
   - traditions
+  - aiGenerated
 ---
 **Semana Santa** (Holy Week) in **Medellín, Colombia** is a powerful and deeply spiritual time, blending Catholic traditions with local culture. It's a reflective, often somber week leading up to Easter Sunday, with a focus on the Passion, death, and resurrection of Jesus Christ. Here's what typically happens:
 

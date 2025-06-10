@@ -4,6 +4,7 @@ tags:
   - selfWorth
   - emailsSent
 ---
+*journal entry*: apr 30, 2025
 _la parceria cafe, medellin 12:36pm
 
 *the chico at counter said bom dia.* 

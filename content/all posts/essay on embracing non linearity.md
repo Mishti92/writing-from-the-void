@@ -1,10 +1,9 @@
 ---
 tags:
   - nonLinear
+  - raw
+  - aiGenerated
 ---
-
-
-
 
 It seems you might be thinking of **Sara Jolena Wolcott**, a scholar and spiritual teacher who advocates for circular timekeeping as a more sustainable and regenerative alternative to linear productivity models. In her essay _“Sustainability is impossible with linear time-lines. So learn to use a circular calendar,”_ she emphasizes that linear time structures often disconnect us from natural cycles, whereas circular calendars help us realign with the rhythms of nature, including lunar and seasonal patterns. [Medium](https://sara-j-wolcott.medium.com/sustainability-is-impossible-with-linear-time-lines-so-learn-to-use-a-circular-calendar-6010c92592ba?utm_source=chatgpt.com)
 

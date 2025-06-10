@@ -1,18 +1,10 @@
 ---
 tags:
   - kashmirShaivism
+  - aiGenerated
 ---
 
-there’s a whisper that lives inside you.  
-a pulse.  
-soft, ancient, alive.  
-maybe you’ve felt it in stillness.  
-in dance.  
-in love.  
-in heartbreak.  
-it doesn’t ask you to escape the world.  
-it asks you to feel everything fully—and _then_ see through it.  
-that whisper?  
+ 
 
 ### 🌿 a homecoming
 

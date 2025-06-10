@@ -1,6 +1,7 @@
 ---
 tags:
   - kashmirShaivism
+  - aiGenerated
 ---
 [[i am That - practice]]
 

@@ -3,6 +3,7 @@ tags:
   - practice
   - kashmirShaivism
   - nonDuality
+  - aiGenerated
 ---
 for the moments you feel small. disconnected. or you forgot who you are.
 

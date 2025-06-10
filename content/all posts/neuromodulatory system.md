@@ -3,6 +3,7 @@ tags:
   - randomExplorations
   - neuroscience
   - chaiwithcosmo
+  - aiGenerated
 ---
 *last updated*:*18.3.25*  
 

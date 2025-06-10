@@ -2,6 +2,7 @@
 tags:
   - randomExplorations
   - neuroscience
+  - aiGenerated
 ---
 
 ### 🧠💥 SCENARIO: You're Walking Calmly... and Your Phone Gets Stolen

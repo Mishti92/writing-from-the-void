@@ -3,6 +3,7 @@ tags:
   - shiva
   - shakti
   - kashmirShaivism
+  - aiGenerated
 ---
 
 > In the silence behind thought, I am Shiva.  

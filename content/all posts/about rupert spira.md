@@ -5,7 +5,7 @@ tags:
   - kashmirShaivism
   - rupertSpira
   - teacher
-  - shiva
+  - aiGenerated
 ---
 Rupert Spira is a British spiritual teacher, author, and former ceramic artist renowned for his teachings on non-duality and the "Direct Path" to self-realization. Born on March 13, 1960, in London, he resides in Oxford, UK.​[Wikipedia – Die freie Enzyklopädie+12Wikipedia+12Rupert Spira+12](https://en.wikipedia.org/wiki/Rupert_Spira?utm_source=chatgpt.com)[Medium+8Wikipedia, la enciclopedia libre+8Wikipedia – Die freie Enzyklopädie+8](https://es.wikipedia.org/wiki/Rupert_Spira?utm_source=chatgpt.com)
 

@@ -1,11 +1,11 @@
 ---
 tags:
-  - chaiwithcosmo
   - adhd
   - distractions
   - shiva
   - creativity
   - procastination
+  - aiGenerated
 ---
 
 
